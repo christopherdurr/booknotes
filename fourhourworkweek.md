@@ -69,4 +69,53 @@ When making goals:
 2. The goals have to be unrealistic to be effective
 3. Focuses on activities that will fill vacuum when work is removed. Living like a millionaire requires you to do interesting things and not just owning enviable things
 
+**Comfort Challenge**
 
+"Success can be measured in the number of uncomfortable conversations you’re willing to have"
+
+Learn to eye gaze
+
+#STEP 2: Elimination
+
+1. Doing something unimportant well does not make it important.
+2. Requiring a lot of time does not make a task important. 
+
+20/80 principle: 20% of effort is providing 80% of the outcome
+
+"Being overwhelmed is often as unproductive as doing nothing, and is far more unpleasant."
+
+Parkinson's law: "A task will swell in (perceived) importance and complexity in relation to the time allotted for its completion"
+
+1. Limit tasks to the most important to shorten work time (80/20).
+2. Shorten work time to limit tasks to the important (Parkinson’s Law). 
+3. If you had a gun to your head and had to stop doing 4/5 of different timeconsuming activities, what would you remove?
+4. What are the top-three activities that I use to fill time to feel as though I’ve been productive?
+5. Learn to ask, “If this is the only thing I accomplish today, will I be satisfied with my day?”
+6. Are you inventing things to do to avoid the important?
+7. Do not multitask. 
+8. Shorten schedules and deadlines to necessitate focused action instead of deliberation and procrastination.
+
+**Comfort Challenge**
+
+Stop asking for opinions and start proposing solutions.
+**Low information diet**
+
+Most information is time-consuming, negative, irrelevant to your goals, and outside of your influence
+
+1. No newspapers, magazines, audiobooks, or nonmusic radio. Music is permitted at all times.
+2. No news websites whatsoever (cnn.com, drudgereport.com, msn.com, 10 etc.).
+3. No television at all, except for one hour of pleasure viewing each evening.
+4. No reading books, except for this book and one hour of fiction reading prior to bed. 
+5. No web surfing at the desk unless it is necessary to complete a work task for that day.
+6. Necessary means necessary, not nice to have. 
+
+Develop the habit of asking yourself, “Will I definitely use this information for something immediate and important?
+
+Learn to be difficult when it counts. In school as in life, having a reputation for being assertive will help you receive preferential treatment without having to beg or fight for it every time. 
+
+Master the art of refusal and avoiding meetings. 
+
+People are smarter than you think. Give them a chance to prove themselves. '
+
+**Comfort Challenge**
+Say “no” to all requests. Don’t be selective.

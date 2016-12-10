@@ -62,3 +62,11 @@ __QUESTIONS__
 If the payoff is mediocre or average, so is your effort. 
 
 Boredom is the enemy. Not failure. 
+
+When making goals:
+
+1. The goals shift from ambiguous wants to well-defined steps
+2. The goals have to be unrealistic to be effective
+3. Focuses on activities that will fill vacuum when work is removed. Living like a millionaire requires you to do interesting things and not just owning enviable things
+
+

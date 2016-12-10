@@ -98,6 +98,7 @@ Parkinson's law: "A task will swell in (perceived) importance and complexity in 
 **Comfort Challenge**
 
 Stop asking for opinions and start proposing solutions.
+
 **Low information diet**
 
 Most information is time-consuming, negative, irrelevant to your goals, and outside of your influence
@@ -118,4 +119,5 @@ Master the art of refusal and avoiding meetings.
 People are smarter than you think. Give them a chance to prove themselves. '
 
 **Comfort Challenge**
+
 Say “no” to all requests. Don’t be selective.

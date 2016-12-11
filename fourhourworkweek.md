@@ -121,3 +121,44 @@ People are smarter than you think. Give them a chance to prove themselves. '
 **Comfort Challenge**
 
 Say “no” to all requests. Don’t be selective.
+
+#STEP 3: AUTOMATION
+
+Never automate something that can be eliminated, and never delegate something that can be automated or streamlined
+
+Golden Rule #1: Each delegated task must be both time-consuming and welldefined.
+
+Golden Rule #2: On a lighter note, have some fun with it.
+
+When hiring VAs, do the following:
+
+1. Request someone who has “excellent” English and indicate that phone calls will be required (even if not). 
+2. Ask foreign VAs to rephrase tasks to confirm understanding before getting started. 
+3. Request a status update after a few hours of work on a task
+4. Use Parkinson's law
+
+**Comfort Challenge**
+
+Criticism sandwich (praise - criticism - praise)
+
+##Finding a muse
+
+Pick an affordable niche market; be a member of your target market.
+
+It Should Cost the Customer $50–200. 
+
+It Should Take No More Than 3 to 4 Weeks to Manufacture. 
+
+It Should Be Fully Explainable in a Good Online FAQ. 
+
+Three options:
+
+1. Resell a Product
+2. License a product
+3. Product Creation
+
+**CREATING A PRODUCT**
+
+1. Create the content yourself, often via paraphrasing and combining points from several books on a topic.
+2. Repurpose content that is in the public domain and not subject to copyright protection, such as government documents and material that predates modern copyright law.
+3. License content or compensate an expert to help create content. Fees can be one-time and paid up front or royalty-based (5–10% of net revenue, for example). 

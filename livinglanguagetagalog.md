@@ -40,3 +40,42 @@
 * paalam - bye (formal)
 * kinagagalak ko kayong makilala - Pleased to meet you (formal)
 * kinagagalak kitang makilala - pleaed to meet you (informal)
+
+#Chapter 2
+
+**Vocab Warmup**
+
+* Hoy - hey
+* Ano'ng balita - What's new?
+* Wala naman - Nothing much
+* saan ka galing - Where have you been?
+* Saan ka pupunta - Where are you going?
+* kailan - when?
+* ingat ka - Take care
+* ikaw din - you too
+
+**Days of the week**
+
+* lingo - Sunday 
+* lunes - Monday
+* martes - tuesday
+* miyerkoles - wednesday
+* huwebes - thursday
+* biyernes - friday
+* sabado - saturday
+
+**Key Vocab**
+
+* bahay - house
+* baka - maybe/perhaps
+* balita - news
+* buhay - alive
+* galing - come from
+* hapon - afternoon
+* itu - this/here
+* kaibigan - friend
+* kailan - when
+* magkita tayo - let's meet up
+* may - have/there is
+* na - already
+* pa - still

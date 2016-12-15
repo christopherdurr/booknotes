@@ -203,3 +203,11 @@ How to get savings when traveling without wasting time:
 2. Purchase tickets far in advance (three months or more) or last minute, and aim for both departure and return between Tues day and Thursday. 
 
 Use orbitz and kayak
+
+What is one goal that, if completed, would change everything?
+
+Don't try to impress people you don't like. 
+
+Money doesn’t change you; it reveals who you are when you no longer have to be nice.
+
+The more options you consider, the more buyer's regret you'll have. 

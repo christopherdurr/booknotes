@@ -195,3 +195,11 @@ Ask for an inch and turn it into a foot
 Being able to quit things that don’t work is integral to being a winner.
 
 There are two types of mistakes: mistakes of ambition and mistakes of sloth. 
+
+How to get savings when traveling without wasting time:
+
+1. Use credit cards with reward points for large muse-related advertising and manufacturing expenses. 
+
+2. Purchase tickets far in advance (three months or more) or last minute, and aim for both departure and return between Tues day and Thursday. 
+
+Use orbitz and kayak

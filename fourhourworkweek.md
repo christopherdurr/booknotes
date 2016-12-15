@@ -162,3 +162,36 @@ Three options:
 1. Create the content yourself, often via paraphrasing and combining points from several books on a topic.
 2. Repurpose content that is in the public domain and not subject to copyright protection, such as government documents and material that predates modern copyright law.
 3. License content or compensate an expert to help create content. Fees can be one-time and paid up front or royalty-based (5–10% of net revenue, for example). 
+
+
+How to remove yourself from the equation:
+
+1. Use outsourcing companies instead of freelancers so if one gets fired, quits, or doesn't perform then they can be replaced without an interruption to the business. 
+2. Give them written permission to make inexpensive decisions without consulting you first. 
+
+Do not accept payment via Western Union, checks, or money order. 
+
+Do not accept orders from common mail fraud countries such as Nigeria. 
+
+Use lose-win guarantees
+
+When approaching potential partners:
+
+1. Being the “CEO” or “Founder” screams start-up. Give yourself the mid-level title of “vice president” (VP), “director,” or something similar
+2. Put multiple e-mail and phone contacts on the website. 
+3. Set up an Interactive Voice Response (IVR) remote receptionist. (ex. angel.com)
+4. Do not provide home addresses. Use a post office box but leave out the “PO Box” and include the street address of the post office itself. 
+
+**Comfort Challenge**
+
+Lay down in public for 10 seconds
+
+#Step 4: Liberation
+
+Ask yourself - "Why the hell not?"
+
+Ask for an inch and turn it into a foot
+
+Being able to quit things that don’t work is integral to being a winner.
+
+There are two types of mistakes: mistakes of ambition and mistakes of sloth. 

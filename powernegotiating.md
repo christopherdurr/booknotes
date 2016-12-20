@@ -193,4 +193,36 @@ more.
 
 # Section 4: Ending Sales Negotiating Gambits
 
+## Chapter 17: Good Guy/Bad Guy
+
+Buyers use Good Guy/Bad Guy on you much more than you might believe. Look out for it whenever you’re negotiating with two or more people
+
+It is a very effective way of putting pressure on the other person without creating
+confrontation
+
+**Counter Gambit**
+
+1. Identify the gambit and call it out.
+2. Respond by creating a bad guy of your own. 
+3. Go over their heads to their supervisor
+4. Let the bad guy keep talking. 
+
+## Chapter 18: Nibbling
+
+There’s a point in the negotiation when you’re very, very vulnerable, and that point is when you think the
+negotiations are all over
+
+After the decision to buy is made you can Nibble for a bigger
+order, upgraded product or additional services
+
+**Counter Gambit**
+
+Try to prevent the possibility of a buyer Nibbling on you by:
+
+Catch the other person when the tension is off and they feel good
+because they think the negotiations are all over.
+
+1. Showing them in writing what any additional concessions will cost them
+2. Don’t give yourself the authority to make any concessions. Protect yourself with Higher Authority as I taught you in Chapter 4 and the Good Guy/Bad Guy Gambit
+
 

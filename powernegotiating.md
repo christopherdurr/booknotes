@@ -225,4 +225,29 @@ because they think the negotiations are all over.
 1. Showing them in writing what any additional concessions will cost them
 2. Don’t give yourself the authority to make any concessions. Protect yourself with Higher Authority as I taught you in Chapter 4 and the Good Guy/Bad Guy Gambit
 
+## Chapter 19: Patterns of Concessions
 
+There are several errors often made when making concessions:
+
+1. Equal-sized concessions
+2. Making the final concession a big one
+3. Giving it all away upfront. 
+4. Giving small concessions upfront. 
+
+The best way to make concessions is to offer a reasonable concession up front that might just
+cinch the deal.
+
+**Counter Gambit**
+
+When you’re negotiating, you should always be keeping careful notes. So watch closely for the size of the concessions that the buyer is making to you and write them down.
+
+## Chapter 20: Withdrawing an offer
+
+Use it only when you feel that the buyer is simply grinding away to get the last penny off your price.
+
+**Counter Gambit**
+
+When someone uses this on you, don’t be afraid to insist that she resolve internal problems first
+
+To avoid direct confrontation, make the Bad Guy a Vague Higher authority. Continue
+to position yourself on the buyer’s side

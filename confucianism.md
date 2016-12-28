@@ -1,0 +1,68 @@
+# Analects of Confucius
+## Notes by Christopher Durr
+
+Note: This is not a representation of the entirety of my beliefs and faiths. These notes simply serve as a reference to understand other cultures. 
+
+# Book 1
+
+Proper behavior towards parents and elder brothers is the trunk of goodness
+
+Avoid clever talk or a pretentious manner
+
+Every day ask yourself:
+
+1. When interacting with others, are you loyal to their best interests?
+2. When with friends have you been true to your word?
+
+Be cautious in giving promises and be punctual in keeping them
+
+Be faithful to superiors, and refuse toxic friendships
+
+Do not demand comfort in your own home. Be diligent in business and cautious in speech. 
+
+Do not grieve that others do not recognize your merits. You should instead recognize the merits of others. 
+
+## Book 2 
+
+Let there be no evil in your thoughts
+
+Behave so your parents have no anxiety about you, except for your health
+
+Apply old knowledge to gain solutions to new problems
+
+Do not be a specialist
+
+He who learns but does not think is lost. He who thinks but does not learn is in danger. 
+
+Knowledge is recognizing when you know or do not know a thing. 
+
+Seeing what is right and not doing it is cowardice.
+
+## Book 3
+
+Always be too sparing rather than too lavish
+
+Do not compete. Make way for one another. 
+
+If you are not present at a sacrifice, it is as though there was no sacrifice. 
+
+Do not discuss, critize, or censure what is over and done with. 
+
+## Book 4
+
+Dislike nobody 
+
+If wealth and status can only be obtained illegaly, relinquish it. 
+
+Do not be ashamed of wearing shabby clothes and eating coarse food. 
+
+Loyalty, and consideration is the way. 
+
+When in the presence of a good person, constantly ask yourself how you may learn to equal him
+
+Have a reputation of being slow in word but prompt in action. 
+
+Repeated scolding can lead to loss of friendship or favor. 
+
+
+

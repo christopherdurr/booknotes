@@ -71,4 +71,44 @@ Practice relentlessly and internalize your content so you can deliver the presen
 
 *Authenticity doesn't happen naturally.*
 
+Three steps to deliver a perfect speech:
 
+1. Help with planning
+2. Early feedback
+3. Rehearse, rehearse, rehearse
+
+**Note:** Record yourself giving a speech and play it back to yourself. 
+
+Four elements of verbal delivery:
+
+* Rate: speech at which you speak
+* Volume: Loudness or softness
+* Pitch: High or low inflection
+* Pauses: short pauses to punch key words
+
+**Note:** Speak in a conversational tone. Match the pace with your natural conversation style
+
+The problem with most technical or scientific discussions is that the presenters fail to make their content visual, interesting, and entertaining. Those who do all three stand out. 
+
+Believe in what you say
+
+**Gestures**
+
+* Use gestures. Don't be afraid to use your hands
+* Use gestures sparingly. 
+* Avoid canned gestures. Don't think about what gestures to use. Your story will guide them. 
+* Keep gestures above the waist
+
+Having an eager nonverbal communication  will increase the attractiveness of your request/offer. 
+
+Three common issues with bodylanguage:
+
+1. Fidgeting, tpaping, and jingling
+2. Standing rigidly in place
+3. Hands in pockets
+
+Don't fake it until you make it. Fake it until you become it. 
+
+
+
+* 

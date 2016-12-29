@@ -110,5 +110,3 @@ Three common issues with bodylanguage:
 Don't fake it until you make it. Fake it until you become it. 
 
 
-
-* 

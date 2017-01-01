@@ -64,5 +64,53 @@ Have a reputation of being slow in word but prompt in action.
 
 Repeated scolding can lead to loss of friendship or favor. 
 
+## Book 5
+
+Do not run for office until you perfect yourself in the virtue of good faith
+
+Don't only listen to what people have to say but keep an eye on what they do
+
+Do not be afraid to pick up knowledge, even from those below you
+
+Thinking twice before acting is good enough
+
+Do not stoop to clever talk and a pretentious manner
+
+When dealing with those older than you, comfort them. Cherish those younger than you
+
+## Book 6
+
+Strictly follow the path
+
+Belittle your own achievements
+
+Delight in the way rather than prefer it. Prefer it rather than know it. 
+
+Be in moderation. To exceed is as bad as to fall short. 
+
+If you want to get rank and standing, then help others get rank and standing
+
+## Book 7
+
+Seek distraction in the arts
+
+Burst with eagerness and excitement
+
+If you are next to somebody in mourning while eating, do not eat your food
+
+If you have a means of escaping poverty that does not involve doing wrong, do it even if it is menial work
+
+Seek only coarse food to eat, water to drink, and a pillow for sleep to find happiness
+
+Do not talk of prodigies, feats of strength, disorders of nature, or spirits
+
+Even when with three people you can learn something from them by imitating their good qualities. 
+
+Have an unwearying effort to learn and patience in teaching others
+
+A true gentleman is calm and at ease. A small man is fretful and ill at ease
+
+## Book 8
+
 
 

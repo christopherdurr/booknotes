@@ -109,4 +109,30 @@ Three common issues with bodylanguage:
 
 Don't fake it until you make it. Fake it until you become it. 
 
+## Chapter 4: Teach Me Something New
+
+Reveal information that's new to your audience, package it differently, or offer a fresh and novel way to solve an old problem
+
+Dopamine is a natural high that people get when learning something new and exciting. 
+
+Just because you don't have earthshaking data doesn't mean you can't deliver it in a fresh way. 
+
+You will become more interesting if you learn and share ideas from fields that are very different from your own. 
+
+**Note:** Bombard the brain with new experiences. Experience new events, people, and places and incorporate them into your presentations
+
+Great presentations give you ideas you've never considered
+
+We all have unique stories to tell
+
+If you can't explain your big idea in 140 characters or less, keep working on your message
+
+**Note:** Create a twitter-friendly headline. 
+
+## Chapter 5: Deliver Jaw-Dropping Moments
+
+
+
+
+
 

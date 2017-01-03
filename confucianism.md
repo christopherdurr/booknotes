@@ -112,5 +112,49 @@ A true gentleman is calm and at ease. A small man is fretful and ill at ease
 
 ## Book 8
 
+Be generous with others
+
+Follow these three things the most:
+
+1. Remove any traces of violence or arrogance
+2. Every look on your face must have good faith
+3. Remove all coarseness from every word and intonation you speak
+
+Do not be ashamed to consult those less clever than you, or with fewer gifts than you. 
+
+If you have many gifts and talents but you are arrogant and rude, it is worthless
+
+If you do not hold a political position in an area, do not discuss its policies. 
+you were 
+
+Learn as if it were someone you were frightened of losing. 
+
+## Book 9
+
+Have these four traits:
+
+1. Never take anything for granted
+2. Never be over-positive
+3. Never obstinate
+4. Never egotistic
+
+There is no need for practical accomplishments
+
+Ones moral strivings could never cease, always trying to accomplish more and be better
+
+"There are shoots whose lot it is to spring up but never flower; others whose lot it is to flower, but never bear fruit"
+
+Respect the young
+
+If you made a mistake, do not be afraid of admitting the fact and amending your ways
+
+Men fail to attain goodness because they do not care for it sufficiently because it is far away. 
+
+The three most important traits, in order of importance:
+
+1. Goodness
+2. Wisdom
+3. Bravery
+
 
 

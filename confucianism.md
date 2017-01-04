@@ -156,5 +156,51 @@ The three most important traits, in order of importance:
 2. Wisdom
 3. Bravery
 
+## Book 10
+
+At home have a simple and unassuming manner
+
+When conversing with those under you, be friendly. To those above, be restrained and formal.
+
+If a friend dies and there are no relative for them to fall back on, say "the funeral is my affair"
+
+## Book 11
+
+To go too far is as bad as not to go far enough
+
+He who does not tread in the tracks (of the ancients) cannot find his way into the inner room
+
+When one hears a maxim, they should put it into practice immediately
+
+Learning consists in other things besides reading books
+
+## Book 12
+
+He who can submit to ritual is good
+
+Always behave as though you were in the presence of an important guest. Do not do to others what you would not want yourself
+
+Do not grieve or fear
+
+If a person attends to business and does not idle away his time, if he behaves with care to others, then all within the bound universe will be his
+
+People that no longer trust their ruler is lost
+
+Take loyalty and good faith as your guiding principle
+
+Never sleep over a promise -- never agree to anything. That could not be done until the next day.
+
+Call attention to the good points in others, not to their defects
+
+Influential is different from famous. To be influential, be straightforward and do what is right. Examine men's words and observe their expressions. This will make a person certain to win fame in a state. 
+
+Work first, reward afterwards. Attack the evil within yourself
+
+Inform your friends loyally and guide them discreetly. 
+
+
+
+
+
 
 

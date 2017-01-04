@@ -131,6 +131,55 @@ If you can't explain your big idea in 140 characters or less, keep working on yo
 
 ## Chapter 5: Deliver Jaw-Dropping Moments
 
+**Why it works:** Jaw-dropping moments create what neuroscientists call an emotionally charged event, a heightened state of emotion that makes it more likely your audience will remember your message and act on it. 
+
+A memorable moment often gets shared, spreading the message much farther than its immediate audience. 
+
+Find novel and memorable ways to communicate your message. Sometimes you need to surprise your audience to get them to care. 
+
+You're more likely to remember events that arouse your emotions than events that elicit a neutral response. This is "flashbulb memories"
+
+Use very concrete and meaningful examples to illustrate abstract poitns. Use images skillfully, whether beautiful, surprising, or disgusting. 
+
+A howtopper can be as simple as speaking to the audience from your heart. No slides, props, video, just you. "What makes my heart sing is..."
+
+How to create "Holy smokes moments"
+
+* Props and Demos
+* Unexpected and shocking statistics
+* Pictures, Images, and Videos
+* Memorable Headlines -- "soundbites"
+* Personal Storires
+* 
+
+## Chapter 6: Lighten Up
+
+**Why it works:** Humor lowers defenses, making your audience more receptive to your message. It also makes you seem more likable
+
+Artfully weave anecdotes, stories, and humor into your narrrative. 
+
+Don't repeat tired, crass, or dirty jokes. 
+
+When we meet people with a good sense of humor, we are more likely to attribute other desirable traits to their personalities. 
+
+Executives who are ranked outstanding used humor more than twice as often as average executives. 
+
+*Don't try to be funny. Avoid telling jokes*
+
+How to add humor to your speech or presentation
+
+1. Anecdotes, observations, personal stories
+2. Analogies and Metaphors
+3. Quotes (Avoid overused/common quotes)
+4. Video
+5. Photos
+
+Many powerpoint presentations are dreadful because they have little to no emotional impact. 
+
+Be authentic in your humor. 
+
+
+
 
 
 

@@ -251,3 +251,82 @@ When someone uses this on you, don’t be afraid to insist that she resolve inte
 
 To avoid direct confrontation, make the Bad Guy a Vague Higher authority. Continue
 to position yourself on the buyer’s side
+
+## Chapter 21: Position for Easy Acceptance
+
+If the buyer is proud of her ability to negotiate, her egotistical need to win may stop
+you from reaching agreement
+
+Position the buyer to feel good about giving in to you with a small concession made
+
+**Counter Gambit**
+
+If the buyer makes a token concession to you with the hope that it
+will appease you, call his bluff
+
+## Chapter 22: Writing the Contract
+
+A huge advantage goes to the side writing the contract. 
+
+Takes notes when negotiating and put a checkmark to points you will include in your final agreement. 
+
+Before you sign a contract, read the current version all the way through. 
+
+**Counter Gambit**
+
+If the other party offers to write up the contract, say "Look, I have an attorney. I can have him write up the contract for no charge to the both of us"
+
+# Section 5: Why Money Isn't as Important as you Think it Is
+
+## Chapter 23: Buyers want to pay more, not less
+
+Customers who may be asking you to cut your price are secretly wishing that they could pay more for your product
+
+1. You must give them a reason for spending more.
+2. You must convince them that they cannot get a better deal than the one you’re offering
+
+## Chapter 24: Things that are more important than money
+
+There's more to the price that you offer for your product. These all factor into the value of your product:
+
+1. Being convinced they're getting the best deal
+2. The terms you offer
+3. The delivery schedule you offer
+4. Experience you have in delivering the product
+5. The guarantee that you offer and how well you stand behind what you do
+6. Return privileges
+7. Building a working partnership with your customer
+8. Staff
+9. Ability and willingness to tailor your product for your customers
+10. Respect you give to them
+11. Reliability
+
+## Chapter 25: Finding Out How Much a Buyer Will Pay
+
+Establish the most they can afford by offering a higher quality version
+
+Determine their quality standards by offering a stripped down version
+
+Don’t exacerbate the price problem by assuming that price is uppermost in the other
+person’s mind.
+
+# Section 6: Secrets of Power Sales Closing
+
+## Chapter 26: The 4 Stages of Selling
+
+There are four stages to a sale:
+
+1. Prospecting for clients
+2. Qualifying - Finding people who can afford your product
+3. Desire-Building
+4. Closing
+
+## Chapter 27: 24 Power Closes
+
+**Tugboat Close**
+
+Just because a buyer told you no a minute ago, an hour ago, or yesterday, doesn't mean he'll say no again if you ask one more time
+
+**Paddock Close**
+
+Never think of no as a refusal. Just tell a story to take their mind off the decision they made. 

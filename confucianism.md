@@ -228,6 +228,31 @@ Do not let your words outrun your deeds.
 
 Be diligent in your tasks and ease the lot of other people. 
 
+## Book 15
+
+A gentleman can withstand hardships
+
+Be loyal and true to your every word, serious and careful in all you do. Do not be disloyal and untrustworthy in your speech or frivolous and careless in your acts. 
+
+He who is truly wise never wastes a man
+
+To do good, first sharpen your tools
+
+A gentleman is distressed by his own lack of capacity; he is never distressed at the failure of others to recognize his merits. 
+
+Be proud but not quarrelsome, and ally yourself with individuals, not parties
+
+Do not reject sayings because of who the speaker is. 
+
+"Never do to others what you would not like them to do to you"
+
+When everyone dislikes or likes a man, enquiry is necessary. 
+
+To have faults and make not effort to amend them is to have faults. 
+
+Be intent upon the task, not bent upon the pay
+
+
 
 
 

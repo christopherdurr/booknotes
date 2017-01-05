@@ -178,6 +178,40 @@ Many powerpoint presentations are dreadful because they have little to no emotio
 
 Be authentic in your humor. 
 
+# Part 3: Memorable
+
+"Be courageous about your instincts and your ideas. Otherwise you'll just knuckle under, and things that might have been memorable will be lost" - Francis Ford Coppola
+
+## Chapter 7: Stick to the 18-Minute Rule
+
+**Why it works:** Researchers have discovered that "cognitive backlog, too much info, prevents successful transmission of idea
+
+Accumulation of information makes the mental load heavier and heavier, and if you have too much then you'll drop it all like weights. 
+
+Learning can be draining. 
+
+Simplify, simplify
+
+**Rule of Three**: People can remember three pieces of information really well
+
+You can also use three stories
+
+Most people have a hard time remembering more than 7 pieces of new information. 
+
+Use a [message map](http://1.bp.blogspot.com/-IlpklN6ZQ28/U254tkVNJSI/AAAAAAAADt0/WxQR7iYJNJk/s1600/Message+Map+template.png) to outline your speech
+
+## Chapter 8: Paint a Mental Picture with Multisensory Experiences
+
+**Why it works:** It's nearly impossible to be bored if you're exposed to mesmerizing images, captivating videos, intriguing props, beautiful words, and more than one voice. 
+
+Multimedia experiences enhance learning. It's far more effective to explain concepts using multiple sensory inputs such as auditory, visual, and kinesthetic. 
+
+**Note:** Visualize content. Add images or background pictures to pie charts, tables, and graphs. < 40 words in the first 10 slides. Force yourself to eliminate wordy slides. 
+
+
+
+
+
 
 
 

@@ -198,6 +198,38 @@ Work first, reward afterwards. Attack the evil within yourself
 
 Inform your friends loyally and guide them discreetly. 
 
+## Book 13
+
+Lead and encourage people untiringly
+
+Get as much possible done first by your subordinates. Pardon small offences. Promote men of superior capacity. Those who are of superior capacity will bring themselves to your notice. 
+
+Use only proper language for speech. When speaking and doing other things, leaving nothing to mere chance. 
+
+Once a man puts himself aright, he will find no difficulty at all in filling any government post. But if he cannot put himself aright, how can he hope to succeed in putting others right?
+
+If you let yourself be distracted by minor things, nothing important will ever get finished. 
+
+Expect of people only what they are capable of performing. 
+
+## Book 14
+
+Have neither love of mastery, vanity, resentment nor covetousness to be good. 
+
+To be poor and not resent it is far harder than to be rich yet not presumptuous. 
+
+Do not be too ready to speak of goodness. 
+
+A gentleman can influence those above him. 
+
+It used to be that men studied for the sake of self-improvement. Now men study to impress other people. 
+
+Do not let your words outrun your deeds. 
+
+Be diligent in your tasks and ease the lot of other people. 
+
+
+
 
 
 

@@ -330,3 +330,120 @@ Just because a buyer told you no a minute ago, an hour ago, or yesterday, doesn'
 **Paddock Close**
 
 Never think of no as a refusal. Just tell a story to take their mind off the decision they made. 
+
+**"That Wouldn't Stop You" Close**
+
+Whenever the other person raises an objection, say "That wouldn't stop you from buying this today would it?"
+
+**You can afford it Close**
+
+If you're dealing with affluent customers, say "You can afford it". 
+
+**Leave them alone Close**
+
+After you've pitched a product to somebody, leave them alone before they tell you if they accept or not. This gives them time to talk it over. 
+
+**Vince Lombardi Close**  
+
+When everyone says, "Give up. You've tried hard enough", give it one more effort. Sell the person something after they go through with the deal. 
+
+**Silent Close**
+
+Make your pitch and then shut up. The first person who talks loses. 
+
+Always assume your customer will say yes. Don't say a word until you find out whether they will or they won't. 
+
+**The Subject To Close**
+
+Make the sale conditional on another event that will take place that is likely to occur. 
+
+Ex. "Let's write up this paperwork subject to you getting financing for the house."
+
+**Contingency Close**
+
+Same as "subject to" Close except you don't know if the contingency will go through or not. 
+
+**Ben Franklin Close**
+
+Make the buyer do an exercise where they list the pros and cons, and if the pros outweigh the cons then they'll buy. Offer the buyer a long list of pros but when they have to list the cons they are on their own. 
+
+**Dumb Mistake Close**
+
+When the person is reluctant to buy, tell the person a dumb mistake another person made who was in the same situation because  they didn't buy. 
+
+**Final Objection Close**
+
+1. Appear defeated
+2. Release the pressure
+3. Get them to narrow it down to one objection
+4. Overcome that objection
+
+**Puppy dog Close**
+
+Suggest they take the product home for a trial. This will encourage them to get the puppy. 
+
+**Minor Point Close**
+
+If you can get your customer to agree to minor points, when they get ready to make the big decision and they will feel less pressured. 
+
+**Positive Assumption Close**
+
+Assume the buyer is going to buy from you. 
+
+**Return Serve Close**
+
+When a buyer asks you a question, ask them a question back. 
+
+Ex. Buyer - "Does this car come in black?"
+
+Seller - "Would you prefer it in black?"
+
+**Prisoner of War Close**
+
+Relate a true and interesting fact to your buyers. Explain to your buyers that the ability to make good decisions under pressure is rare so they shouldn’t feel bad that they are having trouble making a decision.
+
+**Alternate Choice Close**
+
+When given two choices, the person will pick one or the other, not acknowledging that they don't have to pick either. 
+
+Ex. "If you did buy this, would you use debit or credit?"
+
+**Doorknob Close**
+
+Whenever it seems like you won't go through with the sale, say "I don't think this will work out." and head towards the door.
+Right as you're about to leave, say "I always try to learn whenever I fail to make a sale. Would you mind telling me what I did wrong? It would help in the future."
+
+They'll tell you what you did wrong, and now you can do the Vince Lombardi Second Effort close. 
+
+**Divide and Conquer Close**
+
+Get the more assertive, analytical person out of the way and focus on selling to the less assertive person. 
+
+**Let 'em Think Close**
+
+Don't kill your sales by talking too much. Just because the buyer is silent doesn't mean they're disinterested, they could simply be thinking. 
+
+**The Bank Note Close**
+
+Use this when the buyer thinks a better opportunity will come along. 
+
+Take a $20 bill out of your pocket, drop it on the floor, and put the toe of your shoe on it.
+Then say, “Let me ask you this. If you were walking along the sidewalk and saw a $20 bill
+lying there, would you pick it up? Of course, you would. It’s an opportunity that exists for
+you, just as the investment I showed you is an opportunity. You wouldn’t pass up the
+opportunity to pick up the $20 bill because there may be a $50 bill lying further down the
+sidewalk, would you? But that’s exactly what you’re doing if you pass up an opportunity as
+good as the one I showed you today!”
+
+**The Recall Close**
+  
+
+
+
+
+
+
+
+
+
+

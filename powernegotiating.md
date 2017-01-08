@@ -435,7 +435,22 @@ opportunity to pick up the $20 bill because there may be a $50 bill lying furthe
 sidewalk, would you? But that’s exactly what you’re doing if you pass up an opportunity as
 good as the one I showed you today!”
 
-**The Recall Close**
+**The Recall Close**'
+
+It's always smart to not tell your customer everything about the product and only suddenly recall it in case you're not able to close them. 
+
+**Take Control Close**
+
+Some people have a terrible time making a decision and won't make a move until someone tells them to. 
+
+**Dawson Pledge**
+
+If everything else fails:
+
+Note the time on your watch and you mentally raise your left
+hand, put your right hand over your heart and think, “I hereby pledge that I will not leave
+these buyers until one more hour has gone by.” Whatever it takes, and even if you never
+mention your product or service for one more hour.
   
 
 

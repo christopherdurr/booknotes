@@ -282,6 +282,57 @@ Focus on 9 things:
 
 It is not wealth that matters, but only making a difference in others' lives
 
+## Book 17
+
+Only the wisest and stupidest do not change
+
+Enact 5 things in the world:
+
+1. Reverence 
+2. Tolerance
+3. Trustworthiness
+4. Quickness
+5. Generosity
+
+Before a person gets what they want, they worry about getting it. Once they get what they want, they worry about losing it. Once he worries about losing it, there are no lengths to which he will not go. 
+
+There are several things to hate:
+
+* Those who state the faults of other men
+* Those who occupy inferior positions but put down their superiors
+* Those who are bold but lack understanding
+* Those who think insulting others is straightforwardness
+* Those who think being uncompliant is valor
+
+If a man reaches the age of 40 and not earned the hatred of anyone, it is all over (Better that the good people love you and bad people hate you)
+
+## Book 18
+
+Have no rules of what is permissible and what is not. 
+
+## Book 19
+
+You are satisfactory if:
+
+* Fulfill your orders in the face of mortal danger
+* Do what's right when faced with opportunities for gain
+* Have respect when making a sacrifice
+* Have grief in mind when in mourning
+
+If your grasp on virtue is not broad in practice and your faithfulness not profound, then your presence in the world counts for nothing
+
+Assess what you do not understand and do not forget what you mastered
+
+When a small man commits an error, he will always make excuses
+
+Only labor others when you have gained their trust, or else you will be seen as demanding
+
+In mourning, exhaust grief and then stop
+
+A person can seem wise by a single phrase and unwise by a single phrase. Be careful of what you say. 
+
+
+
 
 
 

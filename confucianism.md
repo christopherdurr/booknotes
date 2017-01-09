@@ -252,6 +252,38 @@ To have faults and make not effort to amend them is to have faults.
 
 Be intent upon the task, not bent upon the pay
 
+## Book 16
+
+There are three friends that will improve you and three friends that will diminish you
+
+Friends who are straightforward, sincere and are learned will improve you. 
+
+Friends who are fawning, insincere, and crafty in speech diminish you. 
+
+When attending a ruler (person in power) there are three mistakes:
+
+1. Speak of something before the appropriate time has come
+2. To fail to speak of something when the appropriate time has come
+3. To speak without gauging the ruler's expression 
+
+Those who are born knowing are best, next are those who come to study and know it, and next are those who study only under duress. 
+
+Focus on 9 things:
+
+1. In observation, clarity
+2. In listening, acuity
+3. In facial expressions, gentlenes
+4. In bearing, reverence
+5. In doubt, questioning
+6. In affairs, attentiveness 
+7. In words, loyalty
+8. In anger, troublesome consequences
+9. Opportunities to gain, the right way
+
+It is not wealth that matters, but only making a difference in others' lives
+
+
+
 
 
 

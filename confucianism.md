@@ -331,6 +331,22 @@ In mourning, exhaust grief and then stop
 
 A person can seem wise by a single phrase and unwise by a single phrase. Be careful of what you say. 
 
+## Book 20
+
+To participate in governance, you must:
+
+1. Be generous but not wasteful
+2. A taskmaster of whom none complain
+3. Desirous but not greedy
+4. Dignified but not arrogant
+5. Awe-inspiring but not fearsome
+
+Remove these 4 evils:
+
+1. Execution without proper instructions
+2. Inspect their work without warning
+3. Demand timely completion while being slow in giving orders
+4. To dole out stingily what must be given
 
 
 

@@ -350,7 +350,11 @@ Remove these 4 evils:
 
 
 
+## List of Disciples
 
+* Zhong You: Senior disciple, pictured as a brash and impulsive warrior. Confucius often made fun of him
+* Yan Hui: Viewed as a sage second only to Confucius. He was a poor man who never aspired to social position or wealth. 
+* Zengzi: Became a leader of a major Confucian community in Lu
 
 
 

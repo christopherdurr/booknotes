@@ -57,7 +57,9 @@ The best thing to increase testosterone is to lower cortisol
 If you are training for strength, you want to try and avoid the burn altogether. The burn is your enemy
 
 **The Basic Technique**: Deadlift to your knees and then drop the bar. I used a “sumo-style” stance, but conventional is fine.
+
 **Format**: 2 to 3 sets of 2 to 3 reps each, each set followed by plyometrics (e.g., sprinting 10 to 20 meters, 6 to 8 box jumps, etc.), then at least 5 minutes of rest.
+
 **Frequency**: Dothis twice weekly, on Mondays and Fridays. The total “time under tension” during sets is less than 5 minutes per week.
 
 Microdose of ibogaine hydrochloride twice weekly, on Mondays and Fridays

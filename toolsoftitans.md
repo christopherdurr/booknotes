@@ -72,3 +72,5 @@ Higher-dose ayahuasca once every 3 to 6 months for 2 consecutive nights
 
 When you get the message you need, you shouldn’t keep asking (i.e., having more experiences), at least until you’ve done some homework assignments, or used the clarity gained to make meaningful changes. 
 
+Flotation tank - recommended two or three times a week. 
+

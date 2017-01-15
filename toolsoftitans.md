@@ -74,3 +74,20 @@ When you get the message you need, you shouldn’t keep asking (i.e., having mor
 
 Flotation tank - recommended two or three times a week. 
 
+Always ask yourself, is that a dream or a goal?
+
+How to get a good night's sleep:
+
+2 Tablespoons of apple cider vinegar, and 1 tablespoon honey stirred into 1 hot cup of water. 
+
+10 min. tetris before bed to block negative thoughts. 
+
+Sleep master sleep mask
+
+
+Meditation
+
+Whenever all or part of a sensory experience suddenly disappears, note that. By note I mean clearly acknowledge when you detect the transition point between all of it being present and at least some of it no longer being present.
+
+Wish for two random people to be happy. 
+

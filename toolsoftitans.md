@@ -64,7 +64,7 @@ If you are training for strength, you want to try and avoid the burn altogether.
 
 Microdose of ibogaine hydrochloride twice weekly, on Mondays and Fridays
 
-Higher-dose ayahuasca once every 3 to 6 months for 2 consecutive nights
+Higher-dose ayahuasca once every 3 to 6 months for 2 consecutive nights 
 
 * *400 mcg* is where you have a transcendental or mystical experience. At this dose or higher, it is critical to have qualified supervision in the form of a guide.
 * *200 mcg* can be used for psychotherapy, self-exploration, deep inner work, and healing.
@@ -84,10 +84,62 @@ How to get a good night's sleep:
 
 Sleep master sleep mask
 
-
 Meditation
 
 Whenever all or part of a sensory experience suddenly disappears, note that. By note I mean clearly acknowledge when you detect the transition point between all of it being present and at least some of it no longer being present.
 
 Wish for two random people to be happy. 
+
+Dealing with the temporary frustration of not making progress is an integral part of the path towards excellence. In fact, it is essential and something that every single elite athlete has had to learn to deal with. If the pursuit of excellence was easy, everyone would do it. Learn to enjoy and appreciate the process. This is especially important because you are going to spend far more time on the actual journey than with those all too brief moments of triumph at the end. Throw out a timeline. It will take what it takes. If the commitment is to a long-term goal and not to a series of smaller intermediate goals, then only one decision needs to be made and adhered to. 
+
+## Wealthy 
+
+As you survey the challenges in your lives, it’s just: **Which of those did you assign yourself, and which of those are you doing to please someone else? Your inbox is a to-do list to which anyone in the world can add an action item**
+
+**Be your unapologetically weird self**
+
+Don't get stuck into a trap of lowering your prices so a lot of people can buy your product. 
+
+In negotiation, he who cares the least wins. 
+
+ When deal-making, ask yourself: Can I trade a short-term, incremental gain for a potential longer-term, game-changing upside? Is there an element here that might be far more valuable in 5 to 10 years 
+
+Heuristic to find good and interesting opportunities in people: Ask them what they do on nights and weekends as a hobby. 
+
+Be so good they can't ignore you
+
+"Smart people should make things"
+
+Realize that the people who you put on pedestals are just like you. 
+
+IF [MORE] INFORMATION WAS THE ANSWER, THEN WE’D ALL BE BILLIONAIRES WITH PERFECT ABS. It's not what you know, it's what you do. 
+
+If something isnt' a "HELL YES", it's a NO. 
+
+Improve a notification email from your business (e.g., subscription confirmation, order confirmation, whatever):
+
+Interesting nonprofits:
+
+eff.org
+
+fightforthefuture.org
+
+For each item on your todo list, ask yourself: “If this were the only thing I accomplished today, would I be satisfied with my day?” “Will moving this forward make all the other to-dos unimportant or easier to knock off later?” Put another way: “What, if done, will make all of the rest easier or irrelevant?
+
+Read book: *Words that work*
+
+Realize that life is happening **for us**, not **to us**
+
+Four commonalities among amazing investors:
+
+1. They cap their downside. Ask, what's the downside of doing this?
+2. asymmetric risk and rewards
+3. Diversify your portfolio
+4. Be givers
+
+When in doubt about your next creative project, follow your anger
+
+Is there a common saying, or some public pronouncement, that you can disprove by making art about it? By doing a test? What makes you angry?
+
+How do you know if you have A-players on your project team? You know it if they don’t just accept the strategy you hand them. They should suggest modifications to the plan based on their closeness to the details.
 

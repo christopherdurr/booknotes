@@ -189,3 +189,7 @@ If you can’t be first in a category, set up a new category you can be first in
 You don't have to be better, you just have to be different.
 
 Don't be afraid to do something you're not qualified to do. 
+
+Read *Age of Propaganda*
+
+I GIVE AWAY 98% OF MY MATERIAL FOR FREE AND, THEN, MANY OF MY FLAGSHIP COURSES ARE EXTREMELY EXPENSIVE. IN FACT, 10 TO 100 TIMES WHAT MY COMPETITORS CHARGE.

@@ -185,3 +185,5 @@ Breaking your rules to co-invest with well-known investors is usually a bad idea
 Write your affirmations 15 times a day. 
 
 If you can’t be first in a category, set up a new category you can be first in.
+
+You don't have to be better, you just have to be different. 

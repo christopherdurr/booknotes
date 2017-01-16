@@ -143,3 +143,45 @@ Is there a common saying, or some public pronouncement, that you can disprove by
 
 How do you know if you have A-players on your project team? You know it if they don’t just accept the strategy you hand them. They should suggest modifications to the plan based on their closeness to the details.
 
+When making a startup, ask yourself these questions:
+
+1. The Monopoly Question: Are you starting with a big share of a small market?
+2. The Secret Question: Have you identified a unique opportunity that others don’t see?
+3. The Distribution Question: Do you have a way to not just create but deliver your product?
+
+The goal isn’t to get good ideas; the goal is to get bad ideas. Because once you get enough bad ideas, then some good ones have to show up
+
+TO CREATE SOMETHING GREAT (OR EVENTUALLY HUGE), START EXTREMELY SMALL
+
+TO CREATE SOMETHING GREAT (OR EVENTUALLY HUGE), START EXTREMELY SMALL
+
+Ask yourself: What’s the smallest possible footprint I can get away with? What is the smallest possible project that is worth my time? What is the smallest group of people who I could make a difference for, or to? Because smallest is achievable. 
+
+Send somebody a thank you note. 
+
+IF YOU CAN’T GENERATE 10 IDEAS, GENERATE 20
+
+Things to write about:
+
+* 10 old ideas I can make new
+* 10 ridiculous things I would invent (e.g., the smart toilet)
+* 10 books I can write (The Choose Yourself Guide to an Alternative Education, etc).
+* 10 business ideas for Google/Amazon/Twitter/etc.
+* 10 people I can send ideas to
+* 10 podcast ideas or videos I can shoot (e.g., Lunch with James, a video podcast where I just have lunch with people over Skype and we chat)
+* 10 industries where I can remove the middleman
+* 10 things I disagree with that everyone else assumes is religion (college, home ownership, voting, doctors, etc.)
+* 10 ways to take old posts of mine and make books out of them
+* 10 people I want to be friends with (then figure out the first step to contact them)
+* 10 things I learned yesterday
+* 10 things I can do differently today
+* 10 ways I can save time
+* 10 things I was interested in as a kid that might be fun to explore now
+
+Forget purpose. It’s okay to be happy without one. 
+
+Breaking your rules to co-invest with well-known investors is usually a bad idea, but following your rules when others reject a startup can work out extremely well.
+
+Write your affirmations 15 times a day. 
+
+If you can’t be first in a category, set up a new category you can be first in.

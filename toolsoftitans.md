@@ -193,3 +193,27 @@ Don't be afraid to do something you're not qualified to do.
 Read *Age of Propaganda*
 
 I GIVE AWAY 98% OF MY MATERIAL FOR FREE AND, THEN, MANY OF MY FLAGSHIP COURSES ARE EXTREMELY EXPENSIVE. IN FACT, 10 TO 100 TIMES WHAT MY COMPETITORS CHARGE.
+
+When you complain, nobody wants to help you
+
+If anybody is going to go out and pitch investors, my advice is to make your first 10 meetings with investors that you don’t really want funding from, because you’re probably going to suck in the beginning.
+
+Am I basically being unfair because I’m operating from a greater set of information?
+
+*Genghis Khan and the Making of the Modern World*
+
+The biggest mistake you can make is to accept the norms of your time. Not accepting norms is where you innovate, whether it’s with technology, with books, with anything.
+
+*In The Dust of This Planet*
+
+“WHEN 99% OF PEOPLE DOUBT YOU, YOU’RE EITHER GRAVELY WRONG OR ABOUT TO MAKE HISTORY.”
+
+Find the smartest 20-somethings in your company. I don’t care if they’re in the mail room or where they are. Give them permission to figure out how they would take down your company.
+
+When possible, always give the money to charity, as it allows you to interact with people well above your pay grade.
+
+Take as long as you want if you’re talented. You’ll get their attention again if you have a reason to.
+
+## Wise
+
+what he was really saying was write for yourself. Don’t try to please anyone but yourself. . . . The second you start doing it for an audience, you’ve lost the long game because creating something that is rewarding and sustainable over the long run requires, most of all, keeping yourself excited about it. . . . 

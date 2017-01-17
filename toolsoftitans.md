@@ -231,3 +231,18 @@ Three of the most effective and impactful charities are:
 * Give Directly
 
 A tool for coming up with unbelievable (yet ultimately accurate) predictions is making a list of what everyone thinks is true or will be true, and asking “What if that weren’t true?” for each and then brainstorming the ramifications.
+
+General fame is overrated. You want to be famous to 2,000 to 3,000 people you handpick.
+
+It pays to write about what you know
+
+Tactics for dealing with haters:
+
+1. It doesn’t matter how many people don’t get it. What matters is how many people do
+2. 10% of people will find a way to take anything personally. Expect it and treat it as math
+3. When in doubt, starve it of oxygen and don't give them attention
+4. If you respond, don’t over-apologize.
+5. You can’t reason someone out of something they didn’t reason themselves into
+6. “Trying to get everyone to like you is a sign of mediocrity. You’ll avoid the tough decisions, and you’ll avoid confronting the people who need to be confronted.”
+7. “If you want to improve, be content to be thought foolish and stupid.”\]
+8. "Living well is the best revenge.”

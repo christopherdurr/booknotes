@@ -244,5 +244,9 @@ Tactics for dealing with haters:
 4. If you respond, don’t over-apologize.
 5. You can’t reason someone out of something they didn’t reason themselves into
 6. “Trying to get everyone to like you is a sign of mediocrity. You’ll avoid the tough decisions, and you’ll avoid confronting the people who need to be confronted.”
-7. “If you want to improve, be content to be thought foolish and stupid.”\]
+7. “If you want to improve, be content to be thought foolish and stupid."
 8. "Living well is the best revenge.”
+
+What you choose to work on, and who you choose to work with, are far more important than how hard you work.
+
+If you work for the awards, you don’t do good work. But if you do good work, the awards will come.

@@ -220,3 +220,5 @@ what he was really saying was write for yourself. Don’t try to please anyone b
 
 
 You should have a running list of three people that you’re always watching: someone senior to you that you want to emulate, a peer who you think is better at the job than you are and who you respect, and someone subordinate who’s doing the job you did—one, two, or three years ago—better than you did it. If you just have those three individuals that you’re constantly measuring yourself off of, and you’re constantly learning from them, you’re going to be exponentially better than you are
+
+Take people who aren’t wedded to the plan and [ask them,] ‘How would you disrupt this plan or how would you defeat this plan?’ If you have a very thoughtful red team, you’ll produce stunning results.”

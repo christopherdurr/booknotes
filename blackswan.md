@@ -128,3 +128,90 @@ terests and self-serving institutions in play
 3. We behave as if the Black Swan does not exist: human nature is not programmed for Black Swans.
 4. What we see is not necessarily all that is there. History hides Black Swans from us and gives us a mistaken idea about the odds of these events: this is the distortion of silent evidence.
 5. We "tunnel": that is, we focus on a few well-defined sources of uncertainty, on too specific a list of Black Swans
+
+## Chapter 5
+
+our reactions, our mode of thinking, our intuitions, depend on
+the context in which the matter is presented
+
+Absence of evidence is not the evidence of absence
+
+we have a natural ten
+dency to look for instances that confirm our story and our vision of the
+world—these instances are always easy to find.
+
+you know what is wrong with a lot more con­
+fidence than you know what is right.
+
+formulate a (bold) conjecture and you start
+looking for the observation that would prove you wrong
+
+## Chapter 6
+
+We have a vulnerability to overinterpretation and our predilection for compact stories over raw truths
+
+Our propensity to impose meaning and con
+cepts blocks our awareness of the details making up the concept.
+
+We, members of the human variety of primates, have a hunger for rules
+because we need to reduce the dimension of matters so they can get into
+our heads
+
+the same condition that makes
+us simplify pushes us to think that the world is less random than it
+actually is
+
+we will tend to
+more easily remember those facts from our past that fit a narrative, while
+we tend to neglect others that do not appear to play a causal role in that
+narrative
+
+You feel less guilty for not having avoided certain
+events; you feel less responsible for it.
+
+Empirically, sex,
+social class, and profession seem to be better predictors of someone's be­
+havior than nationality
+
+The word senate comes
+from senatus, "aged" in Latin; sheikh in Arabic means both a member of
+the ruling elite and "elder."
+
+the biggest killer remains the environment, respon
+sible for close to 13 million deaths annually
+
+The way to avoid the ills of the narrative fallacy is to favor experimen­
+tation over storytelling, experience over history, and clinical knowledge
+over theories.
+
+## Chapter 7
+
+Our intuitions are not cut out for nonlinearities.
+
+linear progression, a Platonic idea, is not the norm
+
+when you look at the empiri
+cal record, you not only see that venture capitalists do better than entre
+preneurs, but publishers do better than writers, dealers do better than
+artists, and science does better than scientists (about 5 0 percent of scien
+tific and scholarly papers, costing months, sometimes years, of effort, are
+never truly read)
+
+Plenty of mildly good news is preferable to one single lump of
+great news.
+
+It is better to
+lump all your pain into a brief period rather than have it spread out over
+a longer one.
+
+One of the attributes of a Black Swan is an asymmetry in
+consequences—either positive or negative.
+
+some business bets in which one wins big but infrequently, yet
+loses small but frequently, are worth making if others are suckers for them
+and if you have the personal and intellectual stamina.
+
+Humans will believe anything you say
+provided you do not exhibit the smallest shadow of diffidence; like ani
+mals, they can detect the smallest crack in your confidence before you ex
+press it

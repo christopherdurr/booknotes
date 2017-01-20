@@ -215,3 +215,7 @@ Humans will believe anything you say
 provided you do not exhibit the smallest shadow of diffidence; like ani
 mals, they can detect the smallest crack in your confidence before you ex
 press it
+
+## Chapter 8
+
+

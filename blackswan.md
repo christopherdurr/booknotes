@@ -16,13 +16,9 @@ to show that you can walk the walk.
 The human mind suffers from three ailments as it comes into contact
 with history:
 
-1. The illusion of understanding, or how everyone thinks he knows
-what is going on in a world that is more complicated (or random)
-than they realize
-2. The retrospective distortion, or how we can assess matters only
-after the fact, as if they were in a rearview mirror
-3. The overvaluation of factual information and the handicap of
-authoritative and learned people
+1. The illusion of understanding, or how everyone thinks he knows what is going on in a world that is more complicated (or random) than they realize
+2. The retrospective distortion, or how we can assess matters only after the fact, as if they were in a rearview mirror
+3. The overvaluation of factual information and the handicap of authoritative and learned people
 
 Much of what took place would have been deemed completely
 crazy with respect to the past. Yet it did not seem that crazy after the
@@ -218,4 +214,47 @@ press it
 
 ## Chapter 8
 
+History is any succession of events seen with the effect of posteriority
+
+Silent evidence is what events use to conceal their own randomness,
+particularly the Black Swan type of randomness.
+
+We may enjoy what we see, but there is no point reading too
+much into success stories because we do not see the full picture.
+
+The more lethal the risks, the less visible they will be, since the severely victimized are likely to be
+eliminated from the evidence
+
+researchers confirm that gamblers have lucky beginnings (the same applies to stock market speculators).
+
+we can see what governments do, and therefore sing their praises—but we do not see the alternative. But there is an alternative; it is less obvious and remains unseen. governments are great at telling you what they did, but not what they did not do.
+
+We humans are an extremely lucky species, and that we got the genes of the risk takers. The foolish risk takers, that is
+
+Do not compute odds from the vantage point of the winning gambler but
+from all those who started in the cohort.
+
+Have the integrity to deliver your "because" very sparingly; try to limit it to situations
+where the "because" is derived from experiments, not backward-looking history.
+
+## Chapter 9
+
+Find who the sucker is
+
+Have you ever wondered why so many of these straight-A students end
+up going nowhere in life while someone who lagged behind is now getting
+the shekels, buying the diamonds, and getting his phone calls returned?
+
+Furthermore, just as we tend to underestimate the role of luck in life in general, we tend to overestimate it in games of chance.
+
+Why we do not see Black Swans: we worry about those that happened, not those that may happen but did
+not. It is why those who "study" and fare well in school have a tendency to be suckers for the ludic fallacy.
+
+We respect what has happened, ignoring what could have happened. In other words, we are naturally shallow and
+superficial—and we do not know it.
+
+If you want a simple step to a higher form of life then shut down the television set, minimize time spent reading newspapers, ignore the blogs. Train yourself to spot the difference between the sensational and the
+empirical.
+
+# Part 2: We just can't predict
 

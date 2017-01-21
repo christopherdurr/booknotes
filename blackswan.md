@@ -367,3 +367,38 @@ are hard to know.
 Learn to read history, get all the knowledge you
 can, do not frown on the anecdote, but do not draw any causal links, do
 not try to reverse engineer too much
+
+## Chapter 13
+
+we do effectively think, but that we more readily narrate backward in
+order to give ourselves the illusion of understanding, and give a cover to
+our past actions
+
+Maximize the serendipity around you.
+
+If you know that you are vulnerable to prediction errors, and if you accept that most "risk measures"
+are flawed, because of the Black Swan, then your strategy is to be as hy perconservative and hyperaggressive as you can be instead of being mildly aggressive or conservative.
+
+Do not try to predict precise Black Swans—it tends to
+make you more vulnerable to the ones you did not predict.
+
+Seize any opportunity, or anything that looks like opportunity.
+They are rare, much rarer than you think. Remember that positive
+Black Swans have a necessary first step: you need to be exposed to
+them.
+
+Let governments predict but do not set much store by what they say.
+
+## Chapter 14
+
+Academic success is partly (but significantly) a lottery.
+
+Ideas spread because they have for carriers self-serving agents who are in
+terested in them, and interested in distorting them in the replication process.
+
+The more socialist a country's orientation, the easier it was for the large corporate monsters to stick around.
+
+Nobody is threatened with complete extinction. Our current environment allows the little guy to bide his time in the antechamber of success—as long as there is life, there is hope.
+
+We will see more periods of calm and stability, with most problems
+concentrated into a small number of Black Swans.

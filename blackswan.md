@@ -343,3 +343,27 @@ you only fit the linear segment of the series.
 
 In a way, projecting allows us to cheat evolution: it now takes place in our head, as a series of
 projections and counterfactual scenarios.
+
+## Chapter 12
+
+No philosophy could be effective unless it took into account our deeply ingrained imperfections, the limitations of our rationality, the flaws that make us human.
+
+When we think of tomorrow, we just project it as another yesterday.
+
+We laugh at others and we don't realize that someone will be just
+as justified in laughing at us on some not too remote day
+
+We do not learn recursively from past experiences. We have
+evidence of a mental block and distortions in the way we fail to learn from
+our past errors in projecting the future of our affective states.
+
+Our problem is not just that we do not know the future, we do not
+know much of the past either.
+
+A true random system is in fact random and does not have predictable
+properties. A chaotic system has entirely predictable properties, but they
+are hard to know.
+
+Learn to read history, get all the knowledge you
+can, do not frown on the anecdote, but do not draw any causal links, do
+not try to reverse engineer too much

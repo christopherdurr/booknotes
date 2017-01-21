@@ -258,3 +258,53 @@ empirical.
 
 # Part 2: We just can't predict
 
+## Chapter 10
+
+The Sydney Opera House was supposed to open in early 1963 at a cost of AU$ 7 million, ended up costing 104 million
+
+We are demonstrably arrogant about what we think we know. We certainly know a lot, but we have a built-in
+tendency to think that we know a little bit more than we actually do. 
+
+*Epistemic arrogance*: Our hubris concerning the limits of our knowledge
+
+Janitors and cabdrivers are more humble when it comes to estimations than Harvard MBAs. 
+
+We overestimate what we know, and underestimate uncertainty, by compressing the range of possible uncertain states (i.e., by reducing the space of the unknown)
+
+People who make forecasts professionally are often more affected by such impediments than those who don't
+
+The more information you give someone, the more hy potheses they will formulate along the way, and the worse off they will be.They see more random noise and mistake it for information.
+
+Experts who tend to be not experts: stockbrokers, clinical psychol
+ogists, psychiatrists, college admissions officers, court judges, councilors,
+personnel selectors, intelligence analysts (the CIA's record, in spite of its
+costs, is pitiful). Economists, financial forecasters, finance professors, political scientists, "risk experts," Bank for International Settlements staff,and personal financial advisers.
+
+Professions that deal with the future and base their studies on the nonrepeatable past have an expert problem
+
+The problem with experts is that they do not know what they do not know.
+
+What matters is not how often you are right, but how large your cumulative errors are. 
+
+There was no difference in results whether one had a PhD or an undergraduate degree.
+Well-published professors had no advantage over journalists. Those who had a big reputation were worse predictors than those
+who had none.
+
+How people get blindspots towards predictions:
+
+1. You tell yourself that you were playing a different game.
+2. You invoke the outlier.
+3. The "almost right" defense.
+
+Statistically sophisticated or complex methods do not necessarily provide more accurate forecasts than simpler ones.
+
+Scholarship without erudition and natural curiosity can close your mind and lead to the fragmentation of
+disciplines.
+
+The longer you wait, the longer you will be expected to wait.
+
+When estimating, variability matters
+
+## Chapter 11
+
+

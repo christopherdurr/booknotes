@@ -414,3 +414,17 @@ number of vicious guards. Filter those guards out and your rate of prisoner abus
 There is a glorification of mediocrity in the United States
 
 Given the paucity of large deviations, their contribution to the total will be vanishingly small.
+
+## Chapter 16
+
+The fractal has numerical or statistical measures
+that are preserved across scales—the ratio is the same, unlike
+the Gaussian.
+
+It takes a long time for some fractal processes to reveal their properties, and
+you underestimate the severity of the shock
+
+A gray swan concerns modelable extreme events, a black swan is
+about unknown unknowns.
+
+It is contagion that determines the fate of a theory in social science, not its validity.

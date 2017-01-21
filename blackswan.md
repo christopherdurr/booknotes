@@ -4,9 +4,7 @@
 
 ## Chapter 1
 
-It is one thing to be cosmetically defiant of authority by wear­
-ing unconventional clothes—what social scientists and economists call
-"cheap signaling"—and another to prove willingness to translate belief
+It is one thing to be cosmetically defiant of authority by wearing unconventional clothes—what social scientists and economists call"cheap signaling"—and another to prove willingness to translate belief
 into action.
 
 You can afford to be compassionate, lax, and courteous if, once in a while, when it is least expected of
@@ -307,4 +305,41 @@ When estimating, variability matters
 
 ## Chapter 11
 
+The most important advances are the least predictable ones, those "lying out of the path of the imagination."
 
+Tools lead to unexpected discoveries, which themselves lead to
+other unexpected discoveries. But rarely do our tools seem to work as in tended; it is only the engineer's gusto and love for the building of toys and machines that contribute to the augmentation of our knowledge.
+
+We build toys. Some of those toys change the world.
+
+The best way to get maximal exposure is to keep researching and collect opportunities
+
+Predict the spread of a technology implies predicting a large element of fads and social contagion, which lie outside the objective utility of the technology itself
+
+*Law of iterated expectations*: If I expect to expect something at some date
+in the future, then I already expect that something at present.
+
+*ignoramus et ignorabimus*—"we are ignorant and will remain so"
+
+Prediction requires knowing about technologies that will be discovered in the future. But that very knowledge
+would almost automatically allow us to start developing those technologies right away. Ergo, we do not know what we will know.
+
+As you project into the future you may need an increasing amount of precision about the dynamics of the
+process that you are modeling, since your error rate grows very rapidly.
+
+A true forecast is done organically by a system, not by fiat.
+One single institution, say, the central planner, cannot aggregate knowledge; many important pieces of information will be missing.
+
+While the scholastic-minded will
+memorize declensions, the a-Platonic nonnerd will acquire, say, Serbo-
+Croatian by picking up potential girlfriends in bars on the outskirts of
+Sarajevo, or talking to cabdrivers, then fitting (if needed) grammatical
+rules to the knowledge he already possesses.
+
+"Linear regression" or "R-square" can ultimately fool you beyond measure, to the point
+where it is no longer funny. You can fit the linear part of the curve and claim a high R-square,
+meaning that your model fits the data very well and has high predictive powers. All that off hot air:
+you only fit the linear segment of the series.
+
+In a way, projecting allows us to cheat evolution: it now takes place in our head, as a series of
+projections and counterfactual scenarios.

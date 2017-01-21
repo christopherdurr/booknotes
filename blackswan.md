@@ -402,3 +402,15 @@ Nobody is threatened with complete extinction. Our current environment allows th
 
 We will see more periods of calm and stability, with most problems
 concentrated into a small number of Black Swans.
+
+Social rank alone can affect longevity. It was calculated that actors who win an Oscar tend to
+live on average about five years longer than their peers who don't. People live longer in societies that have flatter social gradients.
+
+## Chapter 15
+
+Most abuse of prisoners is attributable to a very small
+number of vicious guards. Filter those guards out and your rate of prisoner abuse drops dramatically
+
+There is a glorification of mediocrity in the United States
+
+Given the paucity of large deviations, their contribution to the total will be vanishingly small.

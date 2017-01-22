@@ -107,6 +107,42 @@ The next time a threat looms, pause and list what’s most important to you.
 
 Next time you are in the grip of a stressful event, ask yourself, *In ten years, will this event still have an impact on me?*
 
+## Chapter 5
+
+We are largely unaware of the mental chatter in our minds and how it affects us. Certain thought patterns appear to be unhealthy for telomeres. These include thought suppression and rumination as well as the negative thinking that characterizes hostility and pessimism.
+
+Being a quick-on-the-draw high achiever is not necessarily harmful to your health. It’s the hostility component of type A that is so damaging. People who score high on measures of cynical hostility often cope passively by eating, drinking, and smoking more.
+
+We spend half of the day thinking about something other than what we’re doing.
+
+Women with the highest levels of self-reported mind wandering (low present-oriented focus along with wanting to be somewhere else) had telomeres that were shorter by around two hundred base pairs. This was regardless of how much stress they had in their lives.
+
+The most efficient use of time is to do one thing and to pay full attention to it.
+
+When you ruminate, you are actually less effective at solving problems, and you feel much, much worse.
+How do you tell rumination from harmless reflection? Reflection is the natural curious, introspective, or philosophical analysis about why things happen a certain way. Reflection may cause you some healthy discomfort, especially if you are thinking about something you wish you hadn’t done. But rumination feels awful. You can’t stop yourself, even if you try. And it doesn’t lead to a solution, only to more ruminating.
+
+People who ruminate experience more depression and anxiety
+
+You don’t need to believe your negative thoughts, or act on them, or have a lot of bad feelings because the thoughts crossed your mind.
+
+Upon waking—and before mentally jumping into your to-do list—see what it feels like to think “I am alive!” and welcome in the day. 
+Stronger feelings of life purpose are also related to reduced risk of stroke and improved functioning of immune cells. Life purpose is even linked to less belly fat and lower insulin sensitivity. In addition, having a higher purpose in life may inspire us to take better care of ourselves.
+
+Life purpose is what brings us eudaemonic happiness, the healthy feeling that we are involved in something bigger than ourselves.
+
+Conscientiousness in childhood predicts longevity decades later, and in a study of Medicare patients, those with high self-discipline lived 34 percent longer than their less conscientious counterparts.
+
+When you fail at something important to you, do you berate yourself? Do you become consumed by feelings of inadequacy? Are you judgmental about your flaws? Do you feel isolated and alone, separate from other people?
+If you’ve answered yes to these, it’s a sign that you struggle to feel compassionate toward yourself. Self-compassion is a skill you can develop.
+
+**Tombstone Exercise**
+
+Write down the epitaph you’d like to see on your tombstone, the few words that you’d like the world to remember you by. To get ideas flowing, first ask yourself, what are you deeply passionate about? It forces you to articulate the one or two principles that are the most important to you. 
+
+If you say yes to positive stress, close your eyes and think of what is at the top of your list. Take some time to think of something both exciting and feasible, a mini-adventure. Choose a small step toward that goal, something you can look into today. 
+
+## Chapter 6
 
 
 

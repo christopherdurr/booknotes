@@ -142,8 +142,188 @@ Write down the epitaph you’d like to see on your tombstone, the few words that
 
 If you say yes to positive stress, close your eyes and think of what is at the top of your list. Take some time to think of something both exciting and feasible, a mini-adventure. Choose a small step toward that goal, something you can look into today. 
 
-## Chapter 6
+## Chapter 6: When blue turns to gray, depression and anxiety
 
+Clinical depression and anxiety are linked to shorter telomeres—and the more severe these disorders are, the shorter your telomeres.
 
+Mental disorders and substance abuse are the top causes of disability (defined as “productive days of life lost”) worldwide, and the biggest player in this mix of disorders is depression
 
+Research has demonstrated that these states reach past your mind and soul, past your heart, past your bloodstream, and all the way into your cells.
 
+The more that telomerase goes up, the more likely it is that a person's depression will lift
+
+Depressed people try to suppress the bad feelings so that they can’t be deeply felt, or they keep their problems alive by ruminating about them over and over and over. They criticize themselves. They feel irritable and angry, not just at whatever circumstances have caused their sorrow and stress, but at the fact of feeling sorrow and stress.
+
+The problem with avoiding whatever is making you anxious is that the avoidance actually perpetuates the feelings of anxiety.
+
+MBCT is potent against that great threat to your telomeres, major depression. It’s been shown to be as effective as an antidepressant. 80 percent of depression sufferers experience a recurrence, however MBCT slashes the risk of depression’s return in half
+
+Stress reducing techniques to boost telomere maintenance:
+
+1. Meditation retreats
+2. MBSR
+3. Yoga: Practicing Kirtan Kriya for 12 min./day increased telomerase by 43%
+4. Yogic Meditation: Yoga has recently been shown to increase spine bone density if practiced long term
+5. Qigong: Reduces depression and may improve diabetes
+
+# Part 3: Help your body protect its cells
+
+## Chapter 7: Training your Telomeres, how much exercise is enough?
+
+Overtraining syndrome is an unofficial diagnosis that is characterized by sleep changes, fatigue, moodiness, vulnerability to illness, and physical pain.
+
+People who exercise live longer and have a lowered risk of high blood pressure, stroke, cardiovascular disease, depression, diabetes, and metabolic syndrome as well as avoid dementia for longer.
+
+Oxidative stress is a state that can shear through a cell’s molecular population. It’s associated with aging and onset of the diseasespan: cardiovascular disease, cancer, lung problems, arthritis, diabetes, macular degeneration, and neurodegenerative disorders.
+
+Immunosenescence is an important process underlying increased sickness and malignancy as we age. Immunosenescence is a natural process that happens with age… but people who exercise may be able to delay it until the end of life. 
+
+Those who increased their aerobic fitness the most had greater increases in telomerase activity
+
+When endurance athletes are compared to more ordinary runners, who might run around ten miles a week, you find that both groups have nice, healthy telomeres compared to the more sedentary group
+
+Begin any exercise program slowly, gradually working up to better fitness. Weekend warriors who sit in the office for five days and then overdo it on the weekend, pushing themselves to break down a lot of muscle at once, will feel fatigued and sometimes even nauseated. 
+
+**Walking Workout**
+
+Interval (repeat 4 times):
+
+1. Walk fast (on a exertion scale of 1 to 10, be at a 6 or 7): 3 minutes
+2. Stroll gently: 3 minutes
+
+## Chapter 8: Tired Telomeres, from exhaustion to restoration
+
+Poor quality sleep, sleep debt, and sleep disorders are all linked to shorter telomeres. 
+
+Are you getting enough sleep? Ask yourself whether you’re sleepy during the day. If you are, you need more sleep
+
+By getting light exposure during the day, and by dimming the lights at night, you keep your SCN on schedule. If you keep to regular eating and sleeping times, you also give your SCN the information it needs to inhibit the sleep drive during the day and unleash that drive throughout the night.
+
+A bad night of sleep can throw you into a temporary prediabetic state
+ 
+REM sleep shuts off some of the stimulating chemicals in your brain and allows you to split off your emotions from the content of the memory. With time, this action allows you to remember a painful experience but without an intense jolt to your mind and body.
+
+*Getting at least seven hours of sleep or more is associated with longer telomeres, especially if you are older.*
+
+One method that’s been shown to help with this second layer of thoughts is to examine them directly. 
+
+The blue light from screens can suppress melatonin, the sleepiness hormone. 
+
+Gently remind yourself that unless you’re a new parent or a caregiver, your bedtime is one of the few areas of sleep you can control.
+
+Severe sleep apnea, the repeated cessation of breathing during sleep, has been linked to shorter telomeres in adults
+
+Spend 5 minutes in a transition period before you go to sleep without screens by meditating or reading. 
+
+## Chapter 9: Telomeres weigh in, a healthy metabolism
+
+Dieting may not be the way to get healthier.
+
+People with belly fat develop shorter telomeres over the years,5 and it’s very possible that these short telomeres worsen the insulin resistance problem.
+
+Improving your metabolic health is more important than losing weight
+ 
+Fewer than 5 percent of people who are trying to lose weight can stick to a diet and maintain the weight loss for five years.
+
+Instead of dieting by restricting calories, focus on being physically active and eating nutritious foods
+
+**Renewal**
+
+Cutting back on sugar is the single most beneficial change you can make to your diet
+
+Stress, boredom, and emotions (even happy ones) can make you feel as if you’re hungry even when you’re really not.
+
+## Chapter 10: Food and Telomeres, eating for optimal health
+
+Glucose absorbed from refined carbohydrates white bread, white rice, pasta, and from sugary candies, sodas, juices, and most baked goods, hits your bloodstream fast and hard. That uptick of blood glucose also causes an increase in cytokines, which are inflammatory messengers.
+
+Anti-inflammatory foods include oily fish, nuts, flaxseed, flax oil, and leafy vegetables—because all these items are rich in omega-3 fatty acids. 
+
+Keep eating healthy, unprocessed foods like nuts and seeds but dramatically reduce your consumption of fried foods, packaged crackers, cookies, chips, and snacks, which often contain oils made with high amounts of omega-6s, as well as saturated fats, which are a risk factor for cardiovascular disease
+
+People who drink twenty ounces of sugary soda daily have the equivalent of 4.6 extra years of biological aging
+
+To prevent insulin spikes that can eventually lead to insulin resistance, focus on foods that are higher in fiber: Whole-wheat bread, whole-wheat pasta, brown rice, barley, seeds, vegetables, and fruits are all excellent sources.
+
+The more that people ate legumes, nuts, seaweed, fruits, and dairy products, and the less they consumed red meat or processed meat and sweetened sodas, the longer their telomeres in their white blood cells.
+
+**Renewal Lab**
+
+*Homemade Trail Mix*
+
+Combine:
+* 1 Cup walnuts
+* 1/2 cup cacao nibs/chocolate chips
+* 1/2 cup goji berries
+
+Seaweed is also good
+
+# Part 4: The social world shapes your telomeres
+
+## Chapter 11: The Places and Faces that support our telomeres
+
+Communities where people do not trust one another, and where they fear violence, are damaging to telomere health.
+
+Feeling stuck in your neighborhood—wanting to move but not having the money or opportunity to do so—is also linked to shorter telomeres
+
+Children who live in a neighborhood that is physically disorderly, with vacant buildings and trash in the streets, have shorter telomeres. The presence of litter or broken glass right outside the house is an especially strong predictor of telomere trouble
+
+The more education, the longer the telomeres.
+
+**Polycyclic Aromatic Hydrocarbons (PAHs)**: By-products of combustion and can be breathed in from fumes from cigarette and tobacco smoke, coal and coal tar, gas stoves, wildfires, hazardous waste, asphalt, and traffic pollution. You can also be exposed to PAHs if you eat foods grown in affected soil or that have been cooked on a grill
+
+Have your water tested or use a filter. Avoid plastic drinking bottles and cookware. 
+
+Don't microwave plastic
+
+Good friends are like the trusted night watchmen; when they’re around, your telomeres are more protected
+
+Having mixed-quality relationships is related to shorter telomeres.
+
+Sexual intimacy in marriage accounts for longer telomeres.
+
+**Renewal Lab**
+
+Show gratitude and appreciation. Say, “Thanks for doing the dishes” or “Thanks for supporting me at the meeting.”
+
+Acknowledge people you pass on the street.
+
+## Chapter 12: Cellular aging begins in the womb
+
+PARENTS CAN PASS THEIR SHORTENED TELOMERES TO THEIR CHILDREN
+
+Babies whose mothers never completed high school have shorter telomeres in their cord blood compared to those whose moms had a high school diploma—meaning that they have shorter telomeres from the first day of their lives
+
+Parents can directly transmit their telomere length to the child in the womb
+
+Maternal malnourishment during pregnancy leads to increased risk of heart disease in the offspring.
+
+Babies of mothers who have inadequate folate during pregnancy have shorter telomeres, further pointing to folate as vital for optimal telomere maintenance
+
+The U.S. Department of Health and Human Services recommends that pregnant women get between 400 and 800 micrograms of folate daily
+
+when mothers experience severe stress and anxiety during pregnancy, their babies tend to have shorter telomeres in their cord blood.
+
+## Chapter 13: How the early years shape telomeres
+
+Early childhood neglect shortens telomeres—but there are interventions that can help neglected or traumatized children, if we can catch them at a young age
+
+Children who had been exposed to the most violence had the greatest telomere shortening over the five years
+
+Women who breast-feed their children can experience the rush of oxytocin in an intense, palpable way.
+
+Children who’ve suffered from adversity are different. They may have a harder time regulating their emotions. They still need parents to be the emotional copilot—to reassure them that the parent has noticed their troubles and can be relied upon to help soothe them. They may need this reassurance over and over and over again. 
+
+Teens tend to react to threat as a thrill; when they take risks, they feel good.
+
+**Renewal Lab**
+
+ No matter what a child’s situation or temperament, being connected to a screen means we’re not connected to the child.
+ 
+Don’t let your teen’s emotional, thrill-seeking brain pull you into an escalating conflict. If your teen is ranting at you, you have options other than your automatic one… reacting.
+
+When the parents showed affection to each other and the children felt more positive affect, the children tended to have longer telomeres. 
+
+# Conclusion
+
+Income inequality in regions and countries is associated with worse behavior (less trust, more violence, drug abuse) and worse health for all, whether it’s physical or mental health.

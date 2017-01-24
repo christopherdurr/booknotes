@@ -121,3 +121,101 @@ Doing a project quickly doesn’t mean it will be half-assed, sloppy, or unworth
 
 When you give yourself ridiculous deadlines, you find a way to hit them. In scholarly terms, this is known as Parkinson’s Law. “Work expands so as to fill the time available for its completion.”
 
+## Chapter 10: 36 hours of pure focus
+
+What to know about hustle:
+
+1. The rules can be re-written. When you set ridiculous constraints, you can achieve ridiculous things. It forces you to get organized and act.
+2. It's NOT overwhelming
+3. Working Faster = More focus, more passion
+4. You'll still have time for breaks
+5. It's invigorating
+6. Sometimes gems emerge from full immersion
+7. You have to make sacrifices
+8. Working fast affects the aura of your product
+
+## Chapter 12: From concept to launch in 7 days
+
+Three phases:
+
+1. Outline, write, small edits
+2. Major Edits, book design, launch
+3. Publish
+
+Phase 1:
+* Track your pace; Check your wordcount as you write
+* Use dictation in google docs
+* Make only minimal edits
+
+Phase 2:
+* Read it aloud over and over, making updates if it sounds awkward
+* Rework your intro. This is the most important section 
+* Go back and write transitions between chapters and sections to improve flow
+ 
+Book Design:
+1. bookdesigntemplates.com for interior book design
+2. 99designs, fiverr, or createspace for exterior cover design
+
+Launch Prep:
+1. Set up gumroad and amazon
+2. Create thunderclap campaign
+3. Compile all contact lists
+
+It’s better to build a story around a product launch over time, vs. launching with one big announcement and no warning.
+
+## Chapter 13
+
+Production and promotion aspects of the product lifecycle are far more challenging and time consuming than creating the product itself. 
+
+## Chapter 14: So you want to be a hustler
+
+If you want to hustle, you have to live your life as a hustler. You can’t just want it, or do it once or twice. You have to be doing it all the time. 
+
+If you can identify relationships that are contributing to your self-doubt, you’ve taken the first step in fixing the problem. The second step is to eradicate those relationships. There’s no room for self-doubt in your life. It is the single biggest threat to your growth and happiness.
+
+If you’re questioning a relationship, it’s likely bad. If you can trust your gut and take action, you’ll usually be glad you did.
+ 
+Hustlers have a laser focus. They know what they need to do next.
+
+
+Take a moment to identify a task you’re scared of doing. It should be something you know could help you a lot, but you’re nervous about doing it. We all have those things on a list inside our minds. Why aren’t you doing them?
+
+Work hard. Celebrate your victories. Embrace the day. And don’t ever give up.
+
+The only things that matter:
+
+1. Well-Being/Freedom
+2. Passion
+3. Love
+
+Ask yourself, "Why do you hustle?"
+
+## Toolbox for success
+
+Organization and product management
+* Asana
+* Basecamp
+* Toggl
+* RescueTime
+
+Marketing
+* Leadpages
+* drip
+* convertkit
+* unbounce
+* appsumo
+* sumo me
+
+Designing/Prototyping
+* Invision
+* Sketch App
+
+Books
+* The End of Jobs
+* The Personal MBA
+* The startup of you
+* Ready, aim, fire
+
+Self Learning
+* Udemy
+* Team Treehouse

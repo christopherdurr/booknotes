@@ -69,9 +69,9 @@ Three useful measures of well-being: life expectancy, spending on “basics,” 
  
  If post-tax, post-transfer income is considered, household income for the middle fifth rose 36 percent during 1979 - 2010
  
- # Part 2: Discovering the American Dream
+# Part 2: Discovering the American Dream
  
- ## Chapter 3: The Land of Opportunity
+## Chapter 3: The Land of Opportunity
  
 In pursuing a program of economic equality, communists rejected any concern for political equality.
 

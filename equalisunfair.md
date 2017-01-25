@@ -121,7 +121,12 @@ Since 1981, the fraction of the earth’s population living on less than a dolla
 
 The rise of individualism, and its glorification of reason and freedom, made it possible for individuals to use their reason to reshape the earth into a place progressively more hospitable to human life and happiness.
 
-For innovation to flourish, individuals need (1) the freedom to challenge old ideas and adopt new ones, (2) the freedom to put new ideas into practice, (3) the freedom of others in society to adopt or reject the innovator’s ideas, and (4) the freedom of the innovator to profit from successful innovations
+For innovation to flourish, individuals need:
+
+1. the freedom to challenge old ideas and adopt new ones
+2. the freedom to put new ideas into practice
+3. the freedom of others in society to adopt or reject the innovator’s ideas 
+4. the freedom of the innovator to profit from successful innovations
 
 By using these economies of scale, Andrew Carnegie, for instance, was able to reduce the cost of making steel from about $100 a ton to only $12 a ton, while John D. Rockefeller was able to cut production costs of a gallon of kerosene from 1.5 cents a gallon to .45 cents a gallon
 

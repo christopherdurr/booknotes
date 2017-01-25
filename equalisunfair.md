@@ -151,3 +151,57 @@ Over the period 1996 to 2005, more than 50 percent of the poorest families moved
 Regulations impose substantial compliance costs on a business—costs that an established business with a bull pen of attorneys can more easily meet, but which can stop upstarts in their tracks.
 
 A 2014 study by Miles Corak (University of Ottawa), Matthew J. Lindquist (SOFI, Stockholm University), and Bhashkar Mazumder (Federal Reserve Bank of Chicago) suggests that the lower overall mobility in the U.S. is almost solely the product of less downward mobility.
+
+Antitrust regulations paralyze innovators: the only safe move is to stop innovating, stop competing, do nothing, and stagnate. 
+
+Even in the poorest parts of the world, as education scholar James Tooley has cataloged, there is a burgeoning private school system providing education to children of parents who earn only a few dollars a day—and who have the option of sending their children to free government schools.
+
+Medicare guidelines, which pay doctors for treating patients in the ways regulators deem proper, could have “a chilling effect” on medical innovation. “What about hospitals that stray from the guidelines in an effort to do even better?”
+
+ Spending on welfare and state and local programs is enormous, amounting to nearly $1 trillion a year.
+ 
+  94 percent of hourly workers make more than the minimum wage.
+  
+ Mothers in states that raised the minimum wage remained on public assistance an average of 44 percent longer than their peers in states where the minimum did not rise.
+   
+Anti-poverty programs incentivize even good people to drop out of the labor force, and discourage them from taking the entry-level jobs that can become a platform to greater opportunities. 
+ 
+Welfare currently pays more than a minimum-wage job in 35 states, even after accounting for the Earned Income Tax Credit, and in 13 states it pays more than $15 per hour.
+
+It was only once the War on Poverty started spending trillions of dollars to end poverty that the official poverty rate stopped declining.
+
+## Chapter 6: The money makers and the money appropriators
+
+It’s a mistake to view economic rewards as payment for merit as such. We do not get paid in proportion to the laudable qualities we display
+
+In an economic context, the concept of “privilege” should be reserved for those who line their pockets by taking advantage of special favors from the government—what is often called “cronyism.”
+
+One of the evils of today’s system is that, in forcing businessmen to lobby in self-protection, it encourages lobbying for special favors and special treatment.
+
+Finance is an enormously complex field, but all of its activities really boil down to three essential functions—lending, investing, and risk mitigation—that are all responsible for directing capital to its most productive uses.
+
+The government had spent two decades protecting large financial institutions from failure, repeatedly bailing out companies and protecting creditors from losses.
+
+The quality of executives nor the extent to which that quality matters are hard numbers. Assessing the productivity of corporate leaders isn’t like measuring how many bricks a worker can lay in an hour. You can’t even reliably evaluate managers by looking at the profitability of the companies they run, because profits depend on a lot of factors outside the chief executive’s control.
+
+Top financiers, lawyers, and professional athletes have all seen their incomes rise more or less in tandem with top executives
+
+Shareholders endorsed their companies’ executive pay policies in over 98 percent of cases
+
+CEO pay has risen astronomically over [the last 40 years], but so have investor returns.
+
+If inheritance taxes are high, it leads people to ask: “Why shouldn’t I buy that extra yacht or that private plane or that extra vacation home? After all, I can’t take my money with me, and I can’t pass it on to the people I love.”
+
+America’s corporate income tax, by the way, is among the highest in the world (the highest if you include state corporate income taxes)
+
+## Chapter 7: Understanding the campaign against inequality
+
+Authoritarians do not seek to convince you to act as they want: they want your obedience, not your understanding.'
+
+A just social system is a free system—one that respects individual dignity by protecting each person’s equal rights to life, liberty, and the pursuit of happiness. 
+
+This view—that success is fundamentally dependent on luck and that people therefore don’t earn their success—is echoed relentlessly by the inequality critics.
+
+To punish people because someone else suffered a misfortune they had no part in creating is what would be profoundly unfair.
+
+The most successful individuals are those who recognize that what counts in life is not the luck you get—but what you do with it.

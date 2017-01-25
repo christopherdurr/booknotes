@@ -104,3 +104,45 @@ doesn’t wait around for society to cure all its social and economic ills, and 
 When people are taught that they cannot succeed through their own efforts, those who accept that notion will naturally come to resent those who try to succeed through their own efforts, creating the crab-pot phenomenon that drags so many people down. 
 
 If we genuinely care about opportunity, we need to reject the egalitarian concept of equality of opportunity, and put the focus squarely back on equality of rights and the freedom it gives us
+
+## Chapter 4: The conditions of Progress
+
+In the United States, infant mortality has declined from 26 out of every 1,000 births in 1960 to only 6 out of 1,000 in 2011
+
+From a long-term historical perspective, more of us are living longer, safer, richer lives than ever before. 
+
+Wealth creation is first and foremost knowledge creation. And this is why you can add to the list of people who have created the modern world, great thinkers
+
+The word “entrepreneur” comes from the French word entreprendre, which means to “undertake” and is thought to have been coined by the French economist Jean-Baptiste Say.
+
+The core of what enables you to achieve your career goals is your knowledge, skills, judgment, and intellectual effort. 
+
+Since 1981, the fraction of the earth’s population living on less than a dollar a day has dropped from over 40 percent to only 14 percent.
+
+The rise of individualism, and its glorification of reason and freedom, made it possible for individuals to use their reason to reshape the earth into a place progressively more hospitable to human life and happiness.
+
+For innovation to flourish, individuals need (1) the freedom to challenge old ideas and adopt new ones, (2) the freedom to put new ideas into practice, (3) the freedom of others in society to adopt or reject the innovator’s ideas, and (4) the freedom of the innovator to profit from successful innovations
+
+By using these economies of scale, Andrew Carnegie, for instance, was able to reduce the cost of making steel from about $100 a ton to only $12 a ton, while John D. Rockefeller was able to cut production costs of a gallon of kerosene from 1.5 cents a gallon to .45 cents a gallon
+
+Every country that experiences steady economic progress also has enormous levels of inequality, including so-called low-inequality countries, such as those in Scandinavia.
+
+There is no theoretical reason why differences in income or wealth should slow human progress. The notion that “spending drives the economy” and that rich people spend less than others isn’t a view seriously entertained by economists, who on the whole recognize that savings, investment, and innovation are what make us richer.
+
+If we look at the history of Scandinavian countries, we find that they have prospered during periods in which they had more economic freedom (and higher inequality), and they have faltered in periods in which they had less freedom (and lower inequality)
+
+Ability and Effort + Freedom = Opportunity
+
+# Part 3: The betrayal of Opportunity
+
+## Chapter 5: The War on Opportunity
+
+The only way to succeed over the long run is by continually exercising ability
+
+Mobility statistics lump together people who do work hard and people who don’t, as well as people who don’t advance for any number of other reasons.
+
+Over the period 1996 to 2005, more than 50 percent of the poorest families moved up at least one quintile
+
+Regulations impose substantial compliance costs on a business—costs that an established business with a bull pen of attorneys can more easily meet, but which can stop upstarts in their tracks.
+
+A 2014 study by Miles Corak (University of Ottawa), Matthew J. Lindquist (SOFI, Stockholm University), and Bhashkar Mazumder (Federal Reserve Bank of Chicago) suggests that the lower overall mobility in the U.S. is almost solely the product of less downward mobility.

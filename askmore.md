@@ -218,8 +218,33 @@ Some questions include:
 * What is something you see in your world that blows you away right now?
 * What’s one thing you want everyone to know about you?
 * If you could transport yourself anywhere in the world right now, go to any country just to eat dinner, where would you go and what would you eat?
+* Or, what is obvious in your world that to the rest of us may be extremely unobvious?
 
 Politics, religion, and money will inspire some but turn into disasters with others. Know the difference and navigate deliberately.
 
 ## Chapter 12: Legacy Questions
-* Or, what is obvious in your world that to the rest of us may be extremely unobvious?
+
+* What are you proudest of in life?
+* What’s one story you’d like me to tell my grandchildren about you?
+* What have I accomplished?
+* How do I want people to remember me?
+* What brings you meaning at this time in your life?
+* What kinds of things do you think you’ll miss the most?
+* What are the intangible gifts you have now because of your experience with this person?
+* What are you proudest of?
+* What is the most important life lesson you have learned?
+* What is your unfinished business?
+* What is your story?
+
+## Chapter 13: I'm glad I asked
+
+In some societies, questions are viewed as an outright threat. Repressive regimes know they cannot stand up to scrutiny or challenge. Thought dictatorships reject accountability and suppress curiosity.
+
+Benjamin Franklin had said, “It is the first responsibility of every citizen to question authority.”
+
+* Does money matter?
+* How much is too much?
+* Is there something you believe in so strongly that you would give your life for it?
+* How do you know if you have had a successful life?
+
+Inquiry is the sincerest form of flattery. Ask a good question and you convey interest. Slow down, listen closely, and ask more and you engage at a deeper level. 

@@ -107,3 +107,12 @@ What allows you to be a good salesperson is that you have to be willing to be re
 A good life was one of maximum independence. But that was precisely what the people in nursing homes were denied. 
 
 People in nursing homes are dying of boredom, loneliness, and helplessness 
+
+Royce wanted to understand why simply existing—why being merely housed and fed and safe and alive—seems empty and meaningless to us. What more is it that we need in order to feel that life is worthwhile?
+The answer, he believed, is that we all seek a cause beyond ourselves. 
+
+The only way death is not meaningless is to see yourself as part of something greater: a family, a community, a society. 
+
+Medical professionals concentrate on repair of health, not sustenance of the soul.
+ 
+Research has found that in units with fewer than twenty people there tends to be less anxiety and depression, more socializing and friendship, an increased sense of safety, and more interaction with staff—even in cases when residents have developed dementia. 

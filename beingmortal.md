@@ -49,3 +49,23 @@ If scientists came up with a device—call it an automatic defrailer—that woul
 The risk of a fatal car crash with a driver who’s eighty-five or older is more than three times higher than it is with a teenage driver. 
 
 ## Chapter 3: Dependence
+
+Old age is a continuous series of losses.
+
+A 1912 report from the Illinois State Charities Commission described one county’s poorhouse as “unfit to decently house animals.”
+
+A 1909 Virginia report described elderly people dying untended, receiving inadequate nutrition and care, and contracting tuberculosis from uncontrolled contagion. Funds were chronically inadequate for disabled care.
+
+The Guru Vishram Vridh ashram, for instance, is a charity-run old age home in a slum on the south edge of New Delhi, where open sewage ran in the streets and emaciated dogs rummaged in piles of trash.
+
+The most common complaint made is one I’ve heard often from nursing home residents: “It just isn’t home"
+
+Harry Truman, an eighty-three-year-old man who, in March 1980, refused to budge from his home at the foot of Mount Saint Helens near Olympia, Washington, when the volcano began to steam and rumble.
+
+Our old age homes didn’t develop out of a desire to give the frail elderly better lives than they’d had in those dismal places. We said, “This looks like a medical problem. Let’s put these people in the hospital. Maybe the doctors can figure something out.” The modern nursing home developed from there, more or less by accident.
+
+The bureau of Health Insurance's ruling gave an opening to nursing homes, few of which met even minimum federal standards such as having a nurse on-site or fire protections in place. Thousands of them, asserting that they were in “substantial compliance,” were approved, and the number of nursing homes exploded—by 1970, some thirteen thousand of them had been built
+
+Nursing home staff like, and approve of, residents who are “fighters” and show “dignity and self-esteem”—until these traits interfere with the staff’s priorities for them. Then they are “feisty.”
+
+How do we make life worth living when we’re weak and frail and can’t fend for ourselves anymore?

@@ -69,3 +69,41 @@ The bureau of Health Insurance's ruling gave an opening to nursing homes, few of
 Nursing home staff like, and approve of, residents who are “fighters” and show “dignity and self-esteem”—until these traits interfere with the staff’s priorities for them. Then they are “feisty.”
 
 How do we make life worth living when we’re weak and frail and can’t fend for ourselves anymore?
+
+## Chapter 4: Assistance 
+
+Our chances of avoiding the nursing home are directly related to the number of children you have, and, according to what little research has been done, having at least one daughter seems to be crucial to the amount of help you will receive. 
+
+Postural hypotension is a condition of old age in which the body loses its ability to maintain adequate blood pressure for brain function during changes in position like standing up from sitting.
+
+Taking care of a debilitated, elderly person in our medicalized era is an overwhelming combination of the technological and the custodial.
+
+When Keren Brown Wilson, one of the originators of the concept, built her first assisted living home for the aged in Oregon in the 1980s, she was trying to create a place that would eliminate the need for nursing homes altogether.
+
+Residents of assisted living homes had not traded their health for freedom. Their satisfaction with their lives increased, and at the same time their health was maintained. Their physical and cognitive functioning actually improved. Incidence of major depression fell. And the cost for those on government support was 20 percent lower than it would have been in a nursing home.
+
+Studies find that as people grow older they interact with fewer people and concentrate more on spending time with family and established friends.
+
+People reported more positive emotions as they aged. They became less prone to anxiety, depression, and anger. 
+
+What if the change in needs and desires has nothing to do with age per se? Suppose it merely has to do with perspective—your personal sense of how finite your time in this world is.
+
+In general, the younger the subjects were, the less they valued time with people they were emotionally close to and the more they valued time with people who were potential sources of information or new friendship. However, among the ill, the age differences disappeared. The preferences of a young person with AIDS were the same as those of an old person.
+
+It’s perspective, not age, that matters most.
+ 
+The concept of assisted living became so popular that developers began slapping the name on just about anything. The idea mutated from a radical alternative to nursing homes into a menagerie of watered-down versions with fewer services. Wilson testified before Congress and spoke across the country about her increasing alarm at the way the idea was evolving.
+ 
+ Unless supporting people’s capabilities is made a priority, the staff ends up dressing people like they’re rag dolls. Gradually, that’s how everything begins to go. The tasks come to matter more than the people.
+ 
+It’s the rare child who is able to think, ‘Is this place what Mom would want or like or need?’ It’s more like they’re seeing it through their own lens. The child asks, “Is this a place *I* would be comfortable leaving Mom"?
+
+Our elderly are left with a controlled and supervised institutional existence, a medically designed answer to unfixable problems, a life designed to be safe but empty of anything they care about.
+
+# Chapter 5: A Better Life
+
+What allows you to be a good salesperson is that you have to be willing to be rejected
+
+A good life was one of maximum independence. But that was precisely what the people in nursing homes were denied. 
+
+People in nursing homes are dying of boredom, loneliness, and helplessness 

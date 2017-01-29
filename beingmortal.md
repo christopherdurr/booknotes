@@ -116,3 +116,53 @@ The only way death is not meaningless is to see yourself as part of something gr
 Medical professionals concentrate on repair of health, not sustenance of the soul.
  
 Research has found that in units with fewer than twenty people there tends to be less anxiety and depression, more socializing and friendship, an increased sense of safety, and more interaction with staff—even in cases when residents have developed dementia. 
+
+## Chapter 6: Letting Go
+
+More than 15 percent of lung cancers—more than people realize—occur in nonsmokers.
+
+There is no cure for lung cancer at this stage. Even with chemotherapy, the median survival is about a year.
+
+In the United States, 25 percent of all Medicare spending is for the 5 percent of patients who are in their final year of life, and most of that money goes for care in their last couple of months that is of little apparent benefit.
+
+Six months after their death, their caregivers were three times as likely to suffer major depression.
+
+Surveys find that people with serious illness's top concerns include avoiding suffering, strengthening relationships with family and friends, being mentally aware, not being a burden on others, and achieving a sense that their life is complete. 
+
+People believed death should be accepted stoically, without fear or self-pity or hope for anything more than the forgiveness of God. Reaffirming one’s faith, repenting one’s sins, and letting go of one’s worldly possessions and desires were crucial
+
+The difference between standard medical care and hospice is not the difference between treating and doing nothing. The difference was in the priorities. In ordinary medicine, the goal is to extend life. We’ll sacrifice the quality of your existence now—by performing surgery, providing chemotherapy, putting you in intensive care—for the chance of gaining time later. Hospice deploys nurses, doctors, chaplains, and social workers to help people with a fatal illness have the fullest possible lives right now
+
+Sixty-three percent of doctors overestimated their patient’s survival time. Just 17 percent underestimated it. The average estimate was 530 percent too high. And the better the doctors knew their patients, the more likely they were to err.
+
+although doctors usually tell patients when a cancer is not curable, most are reluctant to give a specific prognosis, even when pressed. More than 40 percent of oncologists admit to offering treatments that they believe are unlikely to work. 
+
+It has become, in my view, a bit too trendy to regard the acceptance of death as something tantamount to intrinsic dignity
+
+We’ve created a multitrillion-dollar edifice for dispensing the medical equivalent of lottery tickets—and have only the rudiments of a system to prepare patients for the near certainty that those tickets will not win
+
+When there is no way of knowing exactly how long our skeins will run—and when we imagine ourselves to have much more time than we do—our every impulse is to fight, to die with chemo in our veins or a tube in our throats or fresh sutures in our flesh. The fact that we may be shortening or worsening the time we have left hardly seems to register.
+ 
+People who had substantive discussions with their doctor about their end-of-life preferences were far more likely to die at peace and in control of their situation and to spare their family anguish.
+
+Arriving at an acceptance of one’s mortality and a clear understanding of the limits and the possibilities of medicine is a process, not an epiphany.
+
+## Chapter 7: Hard Conversations
+
+Five of the ten fastest-growing economies in the world are in Africa. By 2030, one-half to two-thirds of the global population will be middle class.
+
+As incomes rise, private sector health care is increasing rapidly, usually paid for in cash. Doctors everywhere become all too ready to offer false hopes, leading families to empty bank accounts, sell their seed crops, and take money from their children’s education for futile treatments.  Use of hospice care has been growing steadily—to the point that, by 2010, 45 percent of Americans died in hospice.
+
+Patients tend to be optimists, even if that makes them prefer doctors who are more likely to be wrong
+
+We know less and less about our patients but more and more about our science. Overall, this kind of relationship can work beautifully, especially when the choices are clear, the trade-offs are straightforward, and people have clear preferences. 
+
+Understanding the finitude of one’s time could be a gift
+
+You may not control life’s circumstances, but getting to be the author of your life means getting to control what you do with them.
+
+Life is choices, and they are relentless. No sooner have you made one choice than another is upon you.
+
+## Chapter 8: Courage
+
+Courage is *strength* in the face of knowledge of what is to be feared or hoped. Wisdom is prudent strength

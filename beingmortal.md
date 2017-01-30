@@ -1,4 +1,4 @@
-# Being Mortal by Henry Holt
+# Being Mortal by Atul Gawande
 
 ## Introduction
 

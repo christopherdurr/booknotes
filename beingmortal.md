@@ -166,3 +166,21 @@ Life is choices, and they are relentless. No sooner have you made one choice tha
 ## Chapter 8: Courage
 
 Courage is *strength* in the face of knowledge of what is to be feared or hoped. Wisdom is prudent strength
+
+One has to decide whether one’s fears or one’s hopes are what should matter most.
+
+“Peak-End rule”: an average of the pain experienced at just two moments—the single worst moment of the procedure and the very end.
+
+For human beings, life is meaningful because it is a story. A story has a sense of a whole, and its arc is determined by the significant moments, the ones where something happens. Measurements of people’s minute-by-minute levels of pleasure and pain miss this fundamental aspect of human existence. A seemingly happy life may be empty. A seemingly difficult life may be devoted to a great cause. We have purposes larger than ourselves.
+
+We have room to act, to shape our stories, though as time goes on it is within narrower and narrower confines.
+
+By 2012, one in thirty-five Dutch people sought assisted suicide at their death
+
+No matter how much one has seen, nature refuses predictability. '
+
+## Epilogue
+
+We’ve been wrong about what our job is in medicine. We think our job is to ensure health and survival. But really it is larger than that. It is to enable well-being. And well-being is about the reasons one wishes to be alive.
+
+Sometimes we can offer a cure, sometimes only a salve, sometimes not even that. But whatever we can offer, our interventions, and the risks and sacrifices they entail, are justified only if they serve the larger aims of a person’s life. When we forget that, the suffering we inflict can be barbaric. 

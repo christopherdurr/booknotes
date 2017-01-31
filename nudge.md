@@ -86,7 +86,7 @@ content of the two statements is exactly the same.
 Framing works because people tend to be somewhat mindless, passive
 decision makers.
 
-## Resisting Temptation
+## Chapter 2: Resisting Temptation
 
 **Dynamically inconsistent**: Initially people prefer A to B, but they later choose B over A.
 
@@ -180,3 +180,79 @@ them know that their current actions are better than the social norm.
 **Priming**
 
 Subtle influences can increase the ease with which certain information comes to mind.
+
+The *mere measurement effect* is when people are asked what they intend to do, they become more likely to act in accordance with their answers
+
+If you ask people, the day before the election, whether they intend to vote, you can increase the probability of their voting by as much as 25 percent!
+
+*“channel factors"* is a term used for small influences that could either facilitate or inhibit certain behaviors.
+
+We can do more to facilitate good behavior by removing some small obstacle than by trying to shove
+people in a certain direction
+
+## Chapter 4: When do we need a nudge?
+
+*Libertarian Paternalism* offer nudges that are most likely
+to help and least likely to inflict harm
+
+What do you need to know to design the best possible choice environment?
+
+* Benefits Now, Cost Later: If there are unseen side effects, good candidate for a nudge
+* Degree of difficulty: If it's hard, it's a good candidate for a nudge
+* Frequency: If it's rare, it's a good candidate for a nudge
+* Feedback: If you get little feedback, it's  good candidate for a nudge
+* Knowing what you like: If you don't know if you'll like it, it's  good candidate for a nudge
+
+Competition ensures that price serves as a good signal of quality
+
+For irrational consumers to be protected there has to be competition.
+Sometimes that competition does not exist.
+
+Don't buy extended warranties
+
+## Chapter 5: Choice Architecture
+
+*Stimulus Response Compatibility* is the idea is that you want the signal you receive (the stimulus) to be consistent
+with the desired action. When there are inconsistencies, performance suffers and people blunder.
+
+Many organizations in both the public and the private sector have discovered the immense power of default options.
+
+Humans will often consider required choice to be a nuisance or worse, and would much prefer to have a good default.
+
+A *Post Completion Error* is when you have finished your main task, you tend to forget things relating to previous steps.
+
+For birth control pills, the pills for days twenty-two through twenty-eight are placebos
+whose only role is to facilitate compliance for Human users.
+
+Warning systems have to avoid the problem of offering so many warnings that they are ignored.
+
+Most patients decide which course of action to take in the very meeting at which their doctor breaks
+the bad news about the diagnosis. The treatment option they choose depends strongly on the type of doctor they see
+
+When we face a small number of well-understood alternatives, we tend to examine all the attributes of all the alternatives and then make trade-offs when necessary. But when the choice set gets large, we must use alternative strategies, and these
+can get us into trouble.
+
+*Elimination by aspects* is when someone first decides what aspect is most important, establishes a cutoff level, then eliminates all the alternatives that do not come up to this standard. However, alternatives that do not meet the minimum cutoff scores may be eliminated even if they are fabulous on all other dimensions.
+
+**Incentives**
+
+One way to start to think about incentives is to ask four questions about a particular choice architecture:
+
+* Who uses?
+* Who chooses?
+* Who pays?
+* Who profits?
+
+Do the choosers actually notice the incentives they face? In free markets, the answer is usually yes, but in important cases the answer is no
+
+The six principles of good choice architecture:
+1. iNcentives
+2. Understand mappings
+3. Defaults
+4. Give feedback
+5. Expect error
+6. Structure complex choices
+
+
+
+

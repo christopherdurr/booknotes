@@ -264,3 +264,86 @@ Two central suggestions:
 1. Automatic enrollment in savings plans; 
 2. Save More Tomorrow Program 
 
+Defined-benefit plans have one large virtue: they are forgiving to even the most mindless of Humans.
+With Social Security, the only decision a worker has to make is when to start receiving benefits.
+
+Defined-contribution plans, such as 401(k) plans in the United States,
+have many desirable features for modern workers. The plans are completely portable, so a worker is free to move from one job to another. Employees have to get around to joining, to figuring out how much to
+save, to managing their portfolio over a period of years, and then to deciding what to do with the proceeds when they finally retire. People can find the whole process frightening
+
+68 percent of 401(k) participants said that their savings rate is “too low,” 31 percent said that their savings rate is “about right,” and only 1 percent said their savings rate is “too high. Roughly 30 percent of employees eligible to join a 401(k) plan fail to enroll. Automatic enrollment has proven to be an extremely effective way to increase enrollment in U.S. defined-contribution plans. With automatic enrollment, participants join sooner, and more participants join eventually
+
+58 percent spent less than one hour determining both their contribution rate and investment decisions
+
+## Chapter 7: Naive Investing
+
+The difference in the returns between Treasury bills and equities is called the “equity premium.”
+
+Attitudes toward risk depend on the frequency with which investors monitor their portfolios
+
+In general, diversification is a great idea, but
+there is a big difference between sensible diversification and the naïve kind.
+
+Five million Americans have more than 60 percent of their retirement savings in company stock. However, this way workers risk losing both their jobs and the bulk of their retirement savings all at once
+
+There is no correlation between the allocation to company stock and subsequent stock performance.
+
+A dollar in company stock is worth less than half the value of a dollar in a mutual fund
+
+**If you have more than 10 percent of your retirement money invested in the company you work for, diversify as quickly as possible**
+
+**Nudges**
+
+*Defaults*: Give good defaults for Automatic Enrollment plans
+
+*Mapping and Feedback*: Show investors what house they will get with each plan, for example. Make it tangible
+
+## Chapter 8: Credit Markets
+
+**Mortgages**
+
+Even mba students at a top school had difficulty picking out the best loans, and this was in a task that was much simpler
+than the one they would encounter in the real world.
+
+African-American borrowers pay an additional $425 for their loans.
+Latino borrowers pay an additional $400.
+
+Loans made by mortgage brokers are more expensive than those
+made by direct lenders by about $600
+
+Microfinance loans in developing countries that led to Nobel Peace Prize for Muhammad Yunus in 2006
+often come with interest rates of 200 percent or more
+
+When interest rates vary and there are myriad fees to pay, just looking at the apr is far from enough
+
+People who get the best deals are those who pay no fee up front.
+
+How to fix it: Lenders would also have to provide a machine-readable detailed recap
+report, one that incorporates all the fees and interest rate provisions, in-
+cluding teaser rates, what the variable-rate changes are linked to, caps on
+the changes per year, and so forth.
+
+**Student Loans**
+
+About two-thirds of four-year college students are in debt when they graduate.
+
+Some colleges’ financial aid offices have tag-teamed with lenders who had provided gifts, stock options, and
+“donations” to the college in order to become “preferred lenders". A
+college’s financial aid staff tells students that they may choose only lenders
+on a “preferred” list, even if these lenders don’t necessarily provide loans in
+the best interest of the student. At one university, a lender was allowed to
+provide staff for a call center under a college’s name; when students called
+in to ask about loans, those “unbiased” employees pushed their own com-
+pany’s loans.
+
+**Credit Cards**
+
+There were more than 1.4 billion credit cards in 2004 for 164 million cardholders—an average of 8.5
+cards per cardholder. American households may have an average credit card debt of $12,000.
+
+Credit card companies should be required to send an annual statement, both hard copy and electronic, that
+lists and totals all the fees that have been incurred over the course of the year.
+
+Credit card limits, which are in place to limit spending, may serve as high anchors that actually encourage spending.
+
+## Chapter 9: Privatizing Social Security, smorgasboard style

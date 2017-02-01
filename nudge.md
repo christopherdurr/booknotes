@@ -253,6 +253,14 @@ The six principles of good choice architecture:
 5. Expect error
 6. Structure complex choices
 
+# Part 2: Money
 
+## Chapter 6: Save More Tommorow
 
+In 2005 the personal savings rate for Americans was negative for
+the first time since 1932 and 1933
+
+Two central suggestions:
+1. Automatic enrollment in savings plans; 
+2. Save More Tomorrow Program 
 

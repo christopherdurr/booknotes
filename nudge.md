@@ -347,3 +347,36 @@ lists and totals all the fees that have been incurred over the course of the yea
 Credit card limits, which are in place to limit spending, may serve as high anchors that actually encourage spending.
 
 ## Chapter 9: Privatizing Social Security, smorgasboard style
+
+Maximizing choice may not lead to the best possible outcome
+
+Required choosing: If the designers are confident that people will do a
+good job picking portfolios for themselves, then they might consider this
+policy
+
+## Chapter 10: Prescription Drugs
+
+Nearly two-thirds of enrollees failed to choose the plan
+that minimized their out-of-pocket costs.
+
+## Chapter 11: How to increase organ donations
+
+The demand for organs greatly exceeds the supply. As of January
+2006 more than 90,000 Americans were on waiting lists for organs, mostly
+for kidneys. Many (possibly as many as 60 percent) will die while on the
+list, and the waiting list is growing at a rate of 12 percent per year.
+
+Of those who expressed their support, only 43% had the box checked on their driver’s license. Of those who stated they personally wanted to donate their organs, only 64% had marked their driver’s license and only 36% had signed an organ donor card.
+
+Presumed consent preserves freedom of choice, but it is different from explicit consent because it shifts the default rule.
+
+When participants had to opt in to being an organ donor, only 42 percent did so. But when
+they had to opt out, 82 percent agreed to be donors.
+
+
+## Chapter 14: Medical Lottery Tickets
+
+Exposure to medical malpractice liability has been estimated to account for 5 to 9 percent of hospital expenditures—which
+means that litigation costs are a contributor to the expense of the healthcare system. Many doctors must
+pay $100,000, or significantly more, in insurance bills every year.
+

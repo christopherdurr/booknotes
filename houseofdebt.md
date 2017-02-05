@@ -27,6 +27,7 @@ The financial system actually works against us, not for us.
 ## Chapter 2: Debt and Destruction
 
 For many Americans, home equity is their only source of wealth. The mortgage lender has the senior claim on the home and is therefore protected if house prices decline. The home owner has the junior claim and experiences huge losses if house prices decline.
+
 House prices may fall so far that even the senior claims take losses, but they are much less severe than the devastation wrought on the borrowers.
 
 During the Great Recession, house prices fell $5.5 trillion
@@ -65,3 +66,55 @@ A collapse in asset prices when an economy has elevated debt levels leads to eco
 The supply-side view emphasizes the productive capacity, or supply, of resources.
 
 Severe recessions are triggered even when no obvious destruction of productive capacity occurs.
+
+The borrower has the junior claim on the home and therefore experiences the first losses associated with any decline in house prices.
+
+The rich are protected against house-price declines not only because they are rich but also because they have a senior claim on housing.
+
+The first way that the economy tries to prevent economic catastrophe when indebted households cut back is through a sharp reduction in interest rates
+
+Very serious adjustments in the economy are required when levered households cut spending. Wages need to fall, and workers need to switch into new industries.
+
+## Chapter 5: Explaining Unemployment
+
+There was a very strong relation between job losses at auto dealers in a county and the size of the local net-worth shock. In counties with the largest shock to net worth, 14 percent of jobs at dealerships were lost.
+
+4 million jobs were lost between March 2007 and March 2009 because of levered losses, which represents 65 percent of all jobs
+
+Delayed foreclosures and government assistance reduced the incentive of workers to find jobs during the Great Recession.
+
+A worker laid off in a recession loses income equal to three times his or her annual pre-layoff earnings over the rest of their lifetime
+
+# Part II: Boil and Bubble
+
+## Chapter 6: The Credit Expansion
+
+*Marginal Borrower*: Borrower that is shopping for a low interest rate.
+
+Throughout American cities, credit was pumped into low credit-score zip codes that were experiencing declining income growth.
+
+At the peak of the housing boom in 2006, house prices in low credit-score zip codes had risen by 80 percent since 2002. In comparison, house prices in high credit-score zip codes had risen by only 40 percent.
+
+House prices in high credit-score zip codes in inelastic cities increased by 50 percent between 2002 and 2006. However, house prices in low credit-score zip codes increased by twice as much, rising 100 percent over the same period. 
+
+From 2002 to 2007, home owners in inelastic counties increased their debt by 55 percent compared to only 25 percent for home owners in elastic counties
+ 
+## Chater 7: Conduit to Disaster
+
+From 1993 to 1996, the volume of real estate loans tripled
+
+in 1970 the U.S. Department of Housing and Urban Development promoted securitization through government-sponsored enterprises (GSEs)
+
+The two most important mistakes made were related: investors underestimated the probability of mortgage default and the correlation of those defaults
+
+This ability of structured finance to repackage risks and to create “safe” assets from otherwise risky collateral led to a dramatic expansion in the issuance of structured securities, most of which were viewed by investors to be virtually risk-free and certified as such by the rating agencies.  securitization directly encouraged irresponsible lending
+
+One in ten mortgage loans in private-label securitization pools were misclassified as owner-occupied despite being investor-owned. 
+
+A triple-A MBS originated in 2007 worth $100 in face value was trading at only $50 as of 2012
+
+## Chapter 8: Debt and Bubbles
+
+The main driver of asset-price bubbles was almost always an expansion in credit supply
+
+What should be the price of an asset such as a stock or a house? Standard asset pricing theory suggests that it should equal the sum of expected payoffs from the asset

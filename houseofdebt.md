@@ -170,3 +170,23 @@ Preventing deflation is one thing; generating significant inflation is much hard
 In the five months from August 2008 to January 2009, bank reserves increased by ten times—from $90 billion to $900 billion—which reflects the extremely aggressive stance of the Fed. Aggressive monetary policy continued through 2013, with bank reserves over $2 trillion today
 
 When central bankers expand bank reserves in a levered-losses recession, there is no increase in lending or borrowing, and a severe and long economic slump ensues.
+
+If the Fed can just get you to believe that inflation will eventually emerge, the inflation expectations view holds that this can boost the economy. The problem with this argument, however, is that it assumes that household spending is very sensitive to changes in real interest rates.
+
+Most economists agree that in normal times government spending has little effect on the economy, because it crowds out private spending and because households understand that they eventually have to pay higher taxes to finance the spending.
+
+Fiscal policy is an attempt to replicate debt restructuring, but it is particularly problematic in the United States, where government revenue is raised from taxing *income*, not *wealth*
+
+When a crisis materializes, the fraction of the population calling themselves centrists falls sharply. In its place is a large increase in the share of extremists, on both the left and the right.
+
+## Chapter 12: Sharing
+
+Outstanding student debt doubled from 2005 to 2010, and by 2012 total student debt in the U.S. economy surpassed $1 trillion.
+
+Student debt is especially pernicious in this regard because it cannot be discharged in bankruptcy. And the government can garnish your wages or take part of your tax refund or Social Security payments to ensure that they get paid on federal loans
+
+In both Australia and the United Kingdom, students pay only a fixed percentage of their income to pay down student loans
+
+When borrowers are forced to bear the entire brunt of the crash in asset prices, the levered-losses cycle kicks in and a very severe recession ensues. If financial contracts more equally imposed losses on both borrowers and lenders, then the economy would avoid the levered-losses trap in the first place. 
+
+SRMs (Shared Rate Mortgages) provide an important mechanism needed to solve the levered-losses problem. The downside protection to borrowers will help stave off dramatic declines in demand, and the shared capital gains on the upside will compensate lenders.

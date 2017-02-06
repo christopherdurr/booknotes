@@ -118,3 +118,55 @@ A triple-A MBS originated in 2007 worth $100 in face value was trading at only $
 The main driver of asset-price bubbles was almost always an expansion in credit supply
 
 What should be the price of an asset such as a stock or a house? Standard asset pricing theory suggests that it should equal the sum of expected payoffs from the asset
+
+Bubbles do exist and that they can make prices deviate substantially from their long-run fundamental value
+
+By enhancing optimists’ buying power in the future, debt increases the probability that a greater fool will indeed be waiting tomorrow.
+
+Debt facilitates an increase in the price of assets by enabling optimists to increase their influence on the market price
+
+Debt leads to bubbles in part because it gives lenders a sense of security that they will be unaffected if the bubble bursts.
+
+Certain unlikely events can materialize that are completely unexpected, because investors neglect the risks that they could happen.
+
+# Part III: Stopping the Cycle
+
+## Chapter 9: Save the banks, save the economy?
+
+The Spanish economy foundered, with unemployment topping 25 percent by 2012.
+
+Harsh Spanish mortgage laws remain on the books, and Spain has endured a horribly severe recession, comparable to the Great Depression in the United States.
+
+In July 2012 the Spanish banking system was given a $125 billion bailout package by Eurozone countries. And it was actually backed by Spanish taxpayers.
+
+Because depositors are generally insured and can demand their money back instantaneously, the non-deposit debt of a bank is considered junior to deposits and is usually called subordinated debt. 
+
+Quantitative Easing: Involves the Fed buying long-term assets that include agency debt, mortgage-backed securities, and long-term treasuries from banks. It has been enormous by any standard. By the middle of 2013, these Fed purchases had increased the size of its balance sheet from around $800 billion in 2007 to a whopping $3.3 trillion.
+
+If banks get in the business of producing bad loans, why should the government step in to protect incompetent bank managers and their creditors and shareholders?
+
+Financing and interest rates as a main concern never rose above 5 percent throughout the financial crisis—in fact, the fraction actually went down from 2007 to 2009.
+
+More debt is not the way to escape a recession caused by excessive debt. This is like trying to cure a hangover with another binge-drinking episode.
+
+Campaign contributions by financial firms led congressional representatives to be more likely to vote for the bank-bailout legislation.This was more than just a correlation. For example, we showed that representatives who were retiring were less sensitive to bank campaign contributions than those looking to get reelected.
+
+## Chapter 10: Forgiveness
+
+The Home Affordable Modification Program was supposed to help 3 to 4 million at-risk home owners avoid foreclosure by easing mortgage terms. Five years later, it had led to only 860,000 permanent modifications
+
+Up to 40 percent of private-label MBS contained some restriction limiting the servicer’s ability to modify mortgages in the securitization pool. The Trust Indenture Act of 1939 stipulated that “modifying the economic terms of RMBS required the consent of 100 percent of their holders.” If even one MBS holder decided it would be better to foreclose than to renegotiate, the servicer’s hands would be tied.
+
+Given that creditors tend to have high income and low leverage whereas borrowers tend to have low income and high leverage, a more equal sharing of losses would have transferred wealth from people with very low marginal propensities to consume to people with very high marginal propensities to consume. This would have boosted overall demand. A creditor barely cuts spending when a dollar is taken away, but a borrower spends aggressively out of a dollar gained.
+
+Debt forgiveness actually made creditors better off. Individuals who received more debt forgiveness saw a decline in five-year mortality risk and significant increases in both earnings and employment.
+
+Moral hazard refers to a situation in which a sophisticated individual games a flawed system by taking advantage of a naive counterparty. This does not explain what happened during the housing boom. Home owners were not sophisticated individuals who took advantage of naive lenders because they understood house prices were artificially inflated. They weren’t counting on a government bailout, and indeed they never received one. In reality, home owners mistakenly believed that house prices would rise forever.
+
+## Chapter 11: Monetary And Fiscal Policy
+
+Preventing deflation is one thing; generating significant inflation is much harder.
+
+In the five months from August 2008 to January 2009, bank reserves increased by ten times—from $90 billion to $900 billion—which reflects the extremely aggressive stance of the Fed. Aggressive monetary policy continued through 2013, with bank reserves over $2 trillion today
+
+When central bankers expand bank reserves in a levered-losses recession, there is no increase in lending or borrowing, and a severe and long economic slump ensues.

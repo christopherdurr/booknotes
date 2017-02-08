@@ -256,3 +256,102 @@ Merging right is ultimately about avoiding seven pitfalls:
 ## Chapter 15: Six Sigma
 
 Perhaps the biggest but most unheralded benefit of Six Sigma is its capacity to develop a cadre of great leaders. 
+
+Six Sigma is a quality program that, when all is said and done, improves your customers’ experience,lowers your costs,and builds better leaders.
+
+Six Sigma has two primary applications. First, it can be used to remove the variation in routine, relatively simple, repetitive tasks—activities that happen over and over again. Second, it can be used to make sure large, complex projects go right the first time
+
+## Chapter 16: The Right Job
+
+It is virtually impossible to know where any given job will take you. 
+
+It can feel very noble to say that you don’t care about being rich; it’s another
+thing to live with that decision over the years, especially as mortgages and tuitions start to pile up. 
+
+**People**
+
+If you join a company where your sensibilities don’t fit in, you’ll find yourself putting on a persona just to get along. 
+
+**Opportunity**
+
+Any job you take should feel somewhat challenging going in. It should make you think, “I can do most of the work, but there
+are certainly skills and knowledge this job requires that I don’t have yet. I’m going to learn something here.”
+
+**Options**
+
+Some companies open—or close—doors for you because of their reputation. Others do that because of their industry. 
+
+Working to fulfill someone else’s needs or dreams almost always catches up with you. 
+
+**Work Content**
+
+Finding a job that touches your core is not hard. Such jobs are everywhere—every piece of work has the potential, since it only has to feel important to you.
+
+Nothing will get you a new job faster than terrific performance in your old one. 
+
+
+## Chapter 17: Getting promoted
+
+How does a person get promoted? The first answer is luck. All careers, no matter how scripted
+they appear, are shaped by some element of pure chance. 
+
+Getting promoted takes one do and one don’t
+
+* Do deliver sensational performance, far beyond expectations, and at every opportunity expand your job beyond its official boundaries. 
+* Don’t make your boss use political capital in order to champion you.
+
+Come up with a new concept or process that doesn’t improve just
+your results, but your unit’s results and the company’s overall
+performance. Change your job in a way that makes the people
+around you work better and your boss look smarter. Don’t just do
+the predictable. 
+
+Don’t make your boss ask the perfect question to get
+information from you. If you want your character to stand up for you and make life easy for your boss, open up and tell it like it is. 
+
+Some dos and don'ts:
+
+* Manage your relationships with your subordinates with the same carefulness that you manage the one with your boss.
+* Get on the radar screen by being an early champion of your company’s major projects or initiatives.
+* Search out and relish the input of lots of mentors, realizing that mentors don’t always look like mentors.
+* Have a positive attitude and spread it around. 
+
+## Chapter 18: Hard Spots
+
+In any bad boss situation, you cannot let yourself be a victim. 
+
+In any business situation, seeing yourself as a victim is completely self-defeating. And when it comes to your career, it’s an attitude that kills all your options—it can even be the start of a career death spiral.
+
+Ask yourself the following questions:
+
+* Why is my boss acting like a jerk?
+* What’s the endgame for my boss?
+* What will happen to me if I deliver results and endure my bad boss? 
+* Why do I work here everyday?
+
+It’s possible great numbers will keep your bad boss around indefinitely.
+
+About 90 percent of the time, complaining
+about a bad boss to his boss will make the situation worse.
+
+## Chapter 19: Work-Life Balance
+
+The reality of the situation:
+
+1. 1.Your boss’s top priority is competitiveness. Of course he wants you to be happy, but only inasmuch as it helps the company win. 
+2. Most bosses are perfectly willing to accommodate work-life balance challenges if you have earned it with performance.The key word here is: if. 
+3. The work-life policies in the company brochure are mainly for recruiting purposes and that real work-life arrangements are negotiated one-on-one
+4.  People who publicly struggle with work-life balance problems and continually turn to the company for help get pigeonholed as ambivalent, entitled, uncommitted, or incompetent
+5. Even the most accommodating bosses believe that work-life balance is your problem to solve.
+
+Best Practices for a good work-life balance:
+
+1. Keep your head in whatever game you’re at.
+2. Have the mettle to say no to requests and demands outside your chosen work-life balance plan.
+3. Make sure your work-life balance plan doesn’t leave you out. 
+
+## Chapter 20: Here there and everywhere
+
+In the heat of battle, it always feels like the worst of times. Low-cost competitors are not new.
+
+Don’t think about reducing costs by 5 to 10 percent. You have to find the ways to take out 30 to 40 percent

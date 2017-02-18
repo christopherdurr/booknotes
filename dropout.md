@@ -70,5 +70,45 @@ Approximately 30% of the students who stepped foot into high school as freshmen 
  
  ## Chapter 5: Before You Drop Out
  
+ Have a plan
+ 
+ Here are 5 things you need to do if you want to dropout of college:
+ 
+ 1. Have a source of support or plan to generate adequate income
+ 2. Learn Sales
+ 3. Learn self-discipline
+ 4. Work under a CEO entrepreneur for free
+ 5. Start a business - launch an entrepreneurial effort
+ 
+Everything around you was built and designed by other dropouts who couldn’t stand for the status quo. Learn by doing, not through a textbook.
+
+## Chapter 6: What should be added to college?
+
+Create:
+
+* A curriculum that matches the personality types of the students. 
+* An experience where you find early on which kids gravitate towards entrepreneurship
+* Low cost universities where anyone can get educated on any subject
+
+Minimize: 
+* Testing
+* Time needed to get the degree
+
+Increase:
+* Education on life subjects (e.g. marriage, parenting, seeking a new job)
+
+Eliminate:
+* Negative mindset
+
+## Chapter 7: How to Process Your Decision
+
+Whatever you decide, know why you did it
+
+1. What do I enjoy doing that I can see myself doing long term?
+2. What can I do to maximize the amount of income I can make while doing this?
+3. Do I need a college degree to do what I want to do?
+4. Do I want to be an employee or an entrepreneur?
+
+As long as you are doing your best with the situation you are in and the resources available to you, you can and should be proud of your answer
  
  

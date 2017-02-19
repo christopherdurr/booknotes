@@ -1,9 +1,9 @@
 #The Business Blockchain by William Mougayar
 ##Notes by Christopher Durr
 
-#Chapter 1: What is the Blockchain?
+## Chapter 1: What is the Blockchain?
 
-Defininitions: 
+Definitions: 
 
 * Business: Back-end database that maintains a distributed ledger, openly.
 * Technical: Exchange network for moving value between peers.
@@ -75,3 +75,33 @@ The decentralization of banking is here. It just has not been evenly distributed
 Here is a summary of the dilemma. Banks do not want to change banking. Startups want to change banking. Blockchain wants to change the world.
 
 ## Chapter 5: Lighthouse Industries and New Intermediaries
+
+Blockchain infrastructures have multiple built-in redundancies, and are very resilient.
+
+Soon, we will be able to get a “proof for everything.” The vision is this: trust checking should be a frictionless process, as easy as your searches on Google.
+
+DAO (Distributed Autonomous Organization)
+
+There are many ways in which governments can use blockchain-based services
+
+* Marriage Registration
+* Property Ownership
+* Motor Vehicle Registration
+* Patents
+* Licenses
+* Taxes
+* Voting
+
+Blockchain’s capabilities are going to be a silver bullet that will fix the challenges with medical records and patient data privacy.
+
+Uses of the blockchain the medical industry include:
+
+* Sharing our patient data in the aggregate, while anonymizing it to ensure privacy is maintained. This is helpful in research, and for comparing similar cases against one another.
+* Recording and time-stamping delivery of medical procedures or events, in order to reduce insurance fraud, facilitate compliance and verification of services being rendered.
+* Recording the maintenance history of critical pieces of medical equipment, for example, an MRI scanner, providing a permanent audit trail.
+* Carrying a secure wallet with our full electronic medical record in it, or our stored DNA, and allowing its access, in case of emergency.
+* Verifying provenance on medications, to eliminate illegal drug manufacturing
+
+## Chapter 6: Implementing Blockchain Technology
+
+It takes some time before a given issue (the blockchain) gains momentum, understanding, and share of mind within senior executive ranks, 

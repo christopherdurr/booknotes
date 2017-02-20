@@ -105,3 +105,43 @@ Uses of the blockchain the medical industry include:
 ## Chapter 6: Implementing Blockchain Technology
 
 It takes some time before a given issue (the blockchain) gains momentum, understanding, and share of mind within senior executive ranks, 
+
+Some companies are funding a “Blockchain Labs” entity that includes software engineers who can get their “hands dirty,” as soon as ideas come to the fore and need to be demonstrated.
+
+Decentralized applications start by creating their own rules for ownerships, transaction requirements, and logic.
+
+When evaluating a blockchain platform, it is important to keep the following key points in mind:
+
+1. Programmability. What specific programming languages are available?
+2. Scalability. How many nodes can the blockchain grow? Will there be upper limits?
+3. Upgradability. What is the track record of the developers for delivering enhancements and upgrades to the blockchain?
+4. Transactions manageability. Is there real-time transparency for all transactions?
+5. Visibility. Do you have a full view on the blockchain activity?
+6. Affordability. What is the cost of deploying that technology?
+7. Security. What is the documented confidence level in the blockchain’s security?
+8. Speed/Performance. What are the upper limits for speed in validating transactions?
+9. High Availability. What is the uptime’s track record?
+10. Extensibility. Can you extend the basic blockchain functionality with a variety of add-ons?
+11. Interoperability. Does it inter-operate well with other blockchains or related technologies?
+12. Open Source. Is the code open source? What is the level of collaboration and contributions from a variety of developers?
+
+When creating for the blockchain, you must have the following:
+
+* Education: Learning the basic functionality of a blockchain, and what it enables generically.
+* Discovery: Identification of areas of opportunities by answering where does the blockchain fit, and what can we do with it?
+* Design: What solutions functionality will we need to address the potential we saw in the discovery phase? How will it affect what we are doing, including the business process, contractual and legal requirements?
+* Development: Software development, integration, and deployment of the technology.
+* Management: Ongoing software maintenance, support, iterative evolution, new features, and updates.
+
+## Chapter 7: Decentralization as the way forward
+
+Decentralization does not mean anarchy or performing illegal acts. It means that an individual user is more empowered and less restricted. In decentralized systems, problems can be solved early and when they are small.
+
+Going forward, this is metamorphosing into something bigger: a cryptotech-driven economy with unparalleled global value creation opportunities, not unlike the Web’s own economy.
+
+With most enabling technologies, we typically begin by duplicating old habits, often by doing the same processes faster or cheaper. Then we start to innovate by doing things differently, and by applying new ideas that we could not see before. 
+
+Getting to decentralization is easier if you start from scratch. It is more difficult to transition from central services to decentralized ones.
+
+
+

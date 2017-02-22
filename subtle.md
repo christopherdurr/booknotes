@@ -53,3 +53,26 @@ Technology has solved old economic problems by giving us new psychological probl
 A lot of people are afraid to accept mediocrity because they believe that if they accept it, they’ll never achieve anything, never improve, and that their life won’t matter.
 
 ## Chapter 4
+
+Humans often choose to dedicate large portions of their lives to seemingly useless or destructive causes. On the surface, these causes make no sense. The question we should be asking is not “How do I stop suffering?” but “Why am I suffering—for what purpose?”
+
+Self-awareness is like an onion. There are multiple layers to it, and the more you peel them back, the more likely you’re going to start crying at inappropriate times.
+
+Our values determine the nature of our problems, and the nature of our problems determines the quality of our lives.
+
+If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success.
+
+Bad values to have:
+
+1. Pleasure
+2. Material success
+3. Always being right
+4. Staying positive
+
+Good values are:
+
+1. Reality-based
+2. Socially constructive
+3. Immediate and controllable
+
+

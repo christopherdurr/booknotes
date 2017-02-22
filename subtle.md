@@ -75,4 +75,54 @@ Good values are:
 2. Socially constructive
 3. Immediate and controllable
 
+## Chapter 5
 
+Often the only difference between a problem being painful or being powerful is a sense that we chose it, and that we are responsible for it.
+
+The more we choose to accept responsibility in our lives, the more power we will exercise over our lives. Accepting responsibility for our problems is thus the first step to solving them.
+
+Many people may be to blame for your unhappiness, but nobody is ever responsible for your unhappiness but you.
+
+
+## Chapter 6
+This may be the first time in human history that every single demographic group has felt unfairly victimized simultaneously.
+
+We should be questioning our own intentions and motivations more.
+
+When we learn something new, we don’t go from “wrong” to “right.” Rather, we go from wrong to slightly less wrong.
+
+Evil people never believe that they are evil; rather, they believe that everyone else is evil.
+
+The more something threatens your identity, the more you will avoid it.
+
+We all have values for ourselves. We protect these values. We try to live up to them and we justify them and maintain them.
+
+There is little that is unique or special about your problems.
+
+How to be less certain of yourself:
+
+1. What if I'm wrong?
+2. What would it mean if I were wrong?
+3. Would being wrong create a better or a worse problem than my current problem, for both myself and others?
+
+## Chapter 7
+
+Bad values involve tangible external goals outside of our control.
+
+It’s growth that generates happiness, not a long list of arbitrary achievements.
+
+Our proudest achievements come in the face of the greatest adversity
+
+We sit and stare and shake our heads and say, “But how?” When really, it’s as simple as just doing it.
+
+Action isn’t just the effect of motivation; it’s also the cause of it.
+
+## Chapter 8 
+
+Many of us have been “indoctrinated” with the belief that we should try to be as inherently accepting and affirmative as possible
+
+Unhealthy love is based on two people trying to escape their problems through their emotions for each other—in other words, they’re using each other as an escape. Healthy love is based on two people acknowledging and addressing their own problems with each other’s support.
+
+Conflict exists to show us who is there for us unconditionally and who is just there for the benefits. 
+
+More is not always better. In fact, the opposite is true. We are actually often happier with less

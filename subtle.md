@@ -1,4 +1,4 @@
-# The suble art of not giving a F**K by Mark Manson
+# The suble art of not giving a F--- by Mark Manson
 ## Notes by Christopher Durr
 
 ## Chapter 1
@@ -126,3 +126,13 @@ Unhealthy love is based on two people trying to escape their problems through th
 Conflict exists to show us who is there for us unconditionally and who is just there for the benefits. 
 
 More is not always better. In fact, the opposite is true. We are actually often happier with less
+
+## Chapter 9
+
+Without death, everything would feel inconsequential, all experience arbitrary, all metrics and values suddenly zero.
+
+Humans are unique in that we’re the only animals that can conceptualize and think about ourselves abstractly. 
+
+All the meaning in our life is shaped by this innate desire to never truly die.
+
+While death is bad, it is inevitable. Therefore, we should not avoid this realization, but rather come to terms with it as best we can.

@@ -136,3 +136,5 @@ Humans are unique in that we’re the only animals that can conceptualize and th
 All the meaning in our life is shaped by this innate desire to never truly die.
 
 While death is bad, it is inevitable. Therefore, we should not avoid this realization, but rather come to terms with it as best we can.
+
+We are so materially well off, yet so psychologically tormented in so many low-level and shallow ways.

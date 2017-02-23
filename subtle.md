@@ -138,3 +138,5 @@ All the meaning in our life is shaped by this innate desire to never truly die.
 While death is bad, it is inevitable. Therefore, we should not avoid this realization, but rather come to terms with it as best we can.
 
 We are so materially well off, yet so psychologically tormented in so many low-level and shallow ways.
+
+While most people whittle their days chasing another buck, or a little bit more fame and attention, or a little bit more assurance that they’re right or loved, death confronts all of us with a far more painful and important question: What is your legacy?

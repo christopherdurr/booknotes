@@ -42,5 +42,17 @@ When people have high personal responsibility for a project, they escalate their
 
 ## Chapter 3: The Basics and Benefits of a stretching mind-set
 
+A stretching mind-set releases us from the anxiety of never having enough and teaches us that we can make more than enough with what’s right here.
 
- 
+By believing that we control our resources, we allow ourselves to work with them in expansive and inventive ways.
+
+When people feel a sense of ownership, they are far more satisfied with their jobs. In a sample of diverse professionals ranging from accountants to software engineers, psychological ownership accounted for 16 percent of a person’s job satisfaction. Psychological ownership and owner-like behaviors predicted improved financial performance  
+
+Embracing constraints helps separate the good artists from the truly exceptional ones
+
+When people face scarcity, they give themselves freedom to use resources in less conventional ways.
+
+
+1. Frugal people emphasize long-term objectives over short-term pleasures
+2. Frugal people reuse what they have instead of buying more.
+3. Frugal people feel freer from conventions, making them less susceptible to social comparisons that lead to chasing. They avoid fretting over what they don’t have and instead carve out a path using what they do have.

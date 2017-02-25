@@ -59,3 +59,46 @@ When people face scarcity, they give themselves freedom to use resources in less
 
 
 ## Chapter 4: The Value of Knowing A Little About a Lot
+
+An outsider can regularly outperform experts in solving a problem in their own area of expertise, especially for complex challenges. The key to outsiders’ results lies with the diversity of their experience.
+
+For fields without stable rules, thousands of hours of practice turn out to be less relevant because the rules constantly shift.
+
+A doctor treated a patient with an ache in the right ear. The doctor’s sloppily written instructions were to put eardrops in the patient’s “R ear.” The nurse promptly put eardrops into the patient’s rear end. The patient complied, believing that despite the unusual treatment for an earache, the experts obviously knew what they were doing.
+
+People who knew lots of little things and drew from multiple perspectives routinely outperformed those who knew one big thing really well.
+
+A diversity of experiences allows people to think more expansively about their resources, leading to more divergent ways of approaching problems. 
+
+How do you take your resources to new places?
+
+1. Explore the world around you ("To invent you need a good imagination and a pile of junk")
+2. Make sure resources remain accessible and at the top of your mind
+3. Use analogical reasoning
+4. Regularly test ideas, expecting most to fail
+
+The more diverse the non-work experiences, the more resourceful people were at work.
+
+## Chapter 5: Time to Act
+
+The biggest determination of our performance is what we do and not what we plan to do. Too much planning prevents us from acting.
+
+There’s less politically, psychologically, and economically invested when not following a plan, enabling us to be responsive to whatever up-to-date information we have instead of overly committed to staying the course
+
+We often give credit for our success to our professional and personal maps—our plans—it’s our actions that usually explain our results. 
+
+Planning bred anxiety from always worrying about following the plan, and then second-guessing whether it was even the best plan.
+
+We don’t always need a complete script . . . or even one at all. Instead, we just need to call, “Action!”
+
+## Chapter 6: We are what we expect
+
+The expectations we set, and that others set for us, are critical for our prospects. Even when based on a false belief, they have a substantial impact on our professional achievements and personal well-being
+
+A manager’s expectations can change an employee’s performance 
+
+Madame C. J. Walker became America’s first black woman millionaire and left an estate worth about $8 million
+
+When we label the same challenges as an opportunity, we approach them very differently.
+
+In some settings, we’re more prone to expect the worst, especially from other people. And when we expect the worst, that’s what we usually get.

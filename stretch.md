@@ -56,3 +56,6 @@ When people face scarcity, they give themselves freedom to use resources in less
 1. Frugal people emphasize long-term objectives over short-term pleasures
 2. Frugal people reuse what they have instead of buying more.
 3. Frugal people feel freer from conventions, making them less susceptible to social comparisons that lead to chasing. They avoid fretting over what they don’t have and instead carve out a path using what they do have.
+
+
+## Chapter 4: The Value of Knowing A Little About a Lot

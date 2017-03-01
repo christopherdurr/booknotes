@@ -79,3 +79,35 @@ Vampirism accounted for every observable detail surrounding death. It explained 
 Broccoli evolved to produce a foul-tasting compound called goitrin so that animals wouldn’t eat it into extinction.
 
 The members of the Academy of Motion Picture Arts and Sciences were 94 percent white and 77 percent male
+
+old and young participants read several dubious assertions, such as, “Shark cartilage is good for arthritis.” But several days later, researchers checked back with their subjects and found that older adults were significantly more likely to say: Yes, shark cartilage really does help arthritis!
+
+The mere repetition of a phrase or idea, even one labeled false, might confuse many people in the long run, because it is so easy to conflate familiarity with truth.
+
+## Chapter 6: The Birth of Fashion
+
+Emma and Madison, two of the most popular names of the last decade, weren’t in the top two hundred just thirty years ago.
+
+Some people are drawn to things because they’re hits. Some people shun things because they’re hits. 
+
+The greater the number of people who find any idea correct, the more the idea will be correct.
+
+prizewinners attract lower ratings because of a backlash among the book’s readers. “Consistent with work in the area of fads and fashion, we found that growth in audience size, or popularity, can itself be seen as distasteful or a reason to give a lower evaluation,”
+
+all jokes are violations of norms or expectations that don’t threaten violence or emotional distress.
+
+In 1995, six in ten U.S. adults said they had never heard of the Internet or weren’t sure what it was; five years later, half the country was online.
+
+Teenagers arose because of the following condiitons:
+
+1. The rise of compulsory education
+2. The Postwar Economic Boom
+3. The invention of the car
+
+## Chapter 7: Rock and Roll and Randomness
+
+Critics explaining why the Mona Lisa is the most famous painting in history often don’t account for the fact that, for most of its history, it wasn’t.
+
+I might see a massive out-of-nowhere success—like the indie film My Big Fat Greek Wedding or the Korean pop song “Gangnam Style”—and be tempted to explain the improbable event as if it were inevitable.
+
+Life is one giant roulette wheel that only spins around once for each person.

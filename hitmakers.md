@@ -111,3 +111,41 @@ Critics explaining why the Mona Lisa is the most famous painting in history ofte
 I might see a massive out-of-nowhere success—like the indie film My Big Fat Greek Wedding or the Korean pop song “Gangnam Style”—and be tempted to explain the improbable event as if it were inevitable.
 
 Life is one giant roulette wheel that only spins around once for each person.
+
+The same product can become a smash hit or a dud in nearly equivalent circumstances. It’s just a matter of math, timing, and luck.
+
+Success in Hollywood does not follow a normal distribution, with many films earning the box office average. Instead, movies follow a power law distribution, which means most of the winnings come from a tiny minority of films.
+
+## Chapter 8: The Viral Myth
+
+The vast majority of the news that people see on Twitter—around 95 percent—comes directly from its original source or from one degree of separation.
+
+Viral diseases tend to spread slowly, steadily, across many generations of infection. But information cascades are the opposite: They tend to spread in short bursts and die quickly. The gospel of virality has convinced some marketers that the only way that things become popular these days is by buzz and viral spread. But these marketers vastly overestimate the reliable power of word of mouth.
+
+If a book sells one million copies total, it is a historic bestseller. In the spring and summer of 2012, Random House was printing one million copies of the Fifty Shades trilogy every week.
+Now with more than 150 million sold copies, Fifty Shades of Grey is the bestselling book in the history of Random House.
+
+For most so-called viral ideas or products to become massive hits, they almost always depend on several moments where they spread to many, many people from one source. 
+
+## Chapter 9: The Audience of my Audience
+
+The smaller, densely connected audience beats the larger, diffuse group. People purchase and share all sorts of things because they want people to see that they have them. 
+
+Specificity and familiarity matter. Detail can make the difference between something that feels like it comes from experience (and meaningful) versus something general and passive.
+
+It’s about knowing the friends of your friends and the followers of your followers. For something to go big, it has to be interesting to those beyond your immediate audience—the audience of your audience.
+
+First, people seek out others who are like them. Sociologists call this “sorting.” Second, individuals change to become more like the group around them. This is called “socializing.”
+
+The most popular mobile apps in the world are various shades of self-expression.
+
+A person can only be advertised so many times in the same format before they become cynical
+
+Don’t ask, “Who is powerful?” Instead ask, “Who is vulnerable?”
+
+One third of personal conversations to talk about themselves. Online, that number jumps to 80 percent. A person’s egoism quotient more than doubles when she opens a computer or lock screen. 
+
+## Chapter 10: What the people want; The economics of prophecy
+
+Humans are prostalgic, enamored by little predictions. But the future is an anarchy that refuses to be governed by even the soundest forecasts.
+

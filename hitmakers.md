@@ -149,3 +149,35 @@ One third of personal conversations to talk about themselves. Online, that numbe
 
 Humans are prostalgic, enamored by little predictions. But the future is an anarchy that refuses to be governed by even the soundest forecasts.
 
+It is an economic fact that predicting the future is most valuable when everybody thinks you’re wrong.
+
+Many good seeds fail to flower in bad weather, and many would-be hits fail through no fault of their own.
+
+When you swing, no matter how well you connect with the ball, the most runs you can get is four. In business, every once in a while, when you step up to the plate, you can score 1,000 runs. This long-tailed distribution of returns is why it’s important to be bold. Big winners pay for so many experiments.
+
+Success is semichaotic. Most ideas fail, and ideally the few successes pay off enough to compensate for the failure.
+
+## Chapter 11: What the people want; A history of pixels and ink
+
+After the U.S. government, the second-largest employer of anthropologists today in the United States isn’t Harvard University or UCLA. It’s Microsoft.
+
+In the 1950s, the television went from living room curiosity to household ubiquity. Less than 1 percent of homes owned a television set in 1948. One decade later, 83 percent did, and they sat in front of it for more than five hours a day.
+
+Sometimes, an upstart company will topple a legacy industry not with a superior product in the old market, but with an inferior product in a new market. The greatest threat to newspapers wasn’t better newspapers. It was bad television.
+
+Nearly 90 percent of young people get news from social media.
+
+Many readers hated clickbait stories, even though they often clicked on them. 
+
+## Chapter 12: The futures of hits; empire and city-states
+
+Above all, a great story should be an invitation to think, not a substitute for thinking.
+
+The biggest hits are often designed for a small, well-defined group of people. Star Wars was for children of a magical age—old enough to appreciate movies and young enough to love medieval histrionics in space without irony or embarrassment. Facebook was initially designed to appeal to the friends of Harvard undergrads, not to connect the whole world. 
+
+
+
+## Chapter 12
+
+
+

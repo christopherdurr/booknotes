@@ -175,9 +175,12 @@ Above all, a great story should be an invitation to think, not a substitute for 
 
 The biggest hits are often designed for a small, well-defined group of people. Star Wars was for children of a magical age—old enough to appreciate movies and young enough to love medieval histrionics in space without irony or embarrassment. Facebook was initially designed to appeal to the friends of Harvard undergrads, not to connect the whole world. 
 
+In 2015 and 2016, at least ten films grossed $100 million worldwide with more than 99 percent of its audience outside the United States.
 
+So often, the difference between success and failures was the quality of the people surrounding the artist.
 
-## Chapter 12
+There is too much talent—and too little listening time—for each worthy artist, creator, or entrepreneur to claim a seat in the pantheon of stardom.
 
+My grind and my time. That’s all anybody can hope to control. The rest is magic sprinkle dust.
 
 

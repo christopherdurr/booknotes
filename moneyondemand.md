@@ -121,6 +121,7 @@ What we do:
 * Put together your webinar presentation to make sure the webinar converts at 10 per cent minimum, using our powerful and proven sales strategy on webinars
 * Help promote the webinar on our social media channels and to our existing contacts
 
+
 We in turn make a percentage of the sales and are able to use the list again to promote other offers, which may be of interest to the list in the future. If you’d like to discuss this in more detail, please feel free to contact me on YOUR PHONE NUMBER.
 
 Warm regards, 
@@ -128,7 +129,52 @@ Warm regards,
 YOUR NAME
 
 
+## Chapter 5
 
 Ask yourself what sort of business you want to run—the sort where you control the money and remain behind-the-scenes, or the sort where you work with customers and create products without having to worry about management and logistics?
 
-## Chapter 5
+Webinar Facilitation
+
+1. Find an Expert -  approach authors, speakers, coaches, and experts
+2. Structure the webinar
+3. Rehearse
+4. Schedule Webinar
+5. Shorten link to webinar using bit.ly
+6. Write the email invitation
+
+If you or your expert can prove what you do live, do it!
+
+## Chapter 6
+
+Affiliate marketing is the process of promoting other people’s products on the Internet for a commission.
+
+Clickbank.com offers affiliate networks online. 
+
+An affiliate link is usually a long, quite ugly URL, which can easily be masked using a WordPress plugin such as ‘pretty link’.
+
+* The headline (the webinar title)
+* The introduction, explaining what led the presenter to deliver this presentation
+* The content (which teaches the strategy)
+* The close (which presents the product offer and call to action). Note that in all cases, the product hadn’t been created yet.
+
+## Chapter 7
+
+Audience members should have at least four or five ‘aha’ moments. They must leave the webinar feeling that they now have an advantage over someone who did not attend the webinar.
+
+For collecting payments, use either paypal, infusionsoft.com, or 1shoppingcart.com
+
+For generating traffic, you can use joint partnerships or udimi.com for emailng lists
+
+Add urgency to the webinar by limiting seats available and making it timely to current events
+
+**Income Loop**
+
+The Money-On-Demand Loop strategy is the process of storing your webinar recordings on a membership site and charging a monthly fee for access to them.
+
+What is required:
+
+* A WordPress site
+* Hosting
+* The ‘Wishlist’ WordPress plugin
+
+

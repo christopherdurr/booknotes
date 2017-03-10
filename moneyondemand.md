@@ -304,7 +304,35 @@ Include at least six one-on-one consulting calls on the first ever webinar, when
 
 ## Chapter 11
 
-There are two types of businesses that would benefit greatly from using webinars:
+The Money-On-Demand B2B business strategy is either:
 
-1. A business looking either to generate more leads in a more cost effective way, or looking to sell one-to-many instead of one-to-one
-2. 
+* The process of getting paid upfront for every webinar you produce for a business. 
+* Getting paid on an ongoing basis for ongoing webinars you set up on business’ behalf.
+
+1. Find Customers
+2. Set up the webinars
+
+1. Put together the slides for the business’ webinar using the template: introduction – content – close
+2. Write the pitch if they want to use the webinar to generate sales
+3. Customize the slides if they wish to add branding to their content
+4. Schedule the webinar
+
+## Chapter 12
+
+For setting up interviews:
+
+1. Find an expert (maybe through expertclick.com / interviewconnections.com)
+2. Structure the interview
+
+Common questions to ask interviewers:
+
+* What steps should someone follow to achieve xyz?
+* What are the common challenges people are likely to face when following these steps?
+* What are the best practices in order to ensure success in xyz?
+* How long would it take someone to achieve xyz?
+* What is likely to stop people from achieving xyz?
+* What are the common mistakes people make when trying to achieve xyz?
+
+## Chapter 13
+
+The key when committing to a show is consistency. You need to be consistent in terms of delivery, format, length, delivery style (formal or informal – live or pre-recorded), and broadcast time and day.

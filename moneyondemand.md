@@ -336,3 +336,5 @@ Common questions to ask interviewers:
 ## Chapter 13
 
 The key when committing to a show is consistency. You need to be consistent in terms of delivery, format, length, delivery style (formal or informal – live or pre-recorded), and broadcast time and day.
+
+

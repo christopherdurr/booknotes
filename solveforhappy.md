@@ -158,3 +158,60 @@ Seven Blind Spots:
 5. Labels: In the absence of context, labels very often cover up the truth.
 6. Emotions: We’re not as rational as we think. Our perception of the truth is often distracted by our irrational emotions.
 7. Exaggeration: What’s more than the truth is less than true.
+
+# Part 4: Ultimate Truth
+
+## Chapter 10: Right here, right now
+
+Being fully aware of the present moment considerably increases your chances of being happy.
+
+Awareness isn’t an on/off switch. It’s a dimmer switch. When you choose to crank it up, you become more aware.
+
+You don’t need to do anything to be aware. Your default status is awareness. To reach it you need to stop doing!
+
+The black belt of presence is to notice when you’re not aware
+
+Whatever you do, give it your undivided attention.
+
+## Chapter 11: The Pendulum Swing
+
+Our attempts to exert control over the endless stream of change disappoints us. Regardless how hard we try, our expectations are bound to be missed when any one change initiates a cascade of unexpected, uncontrollable events. 
+
+No effort is needed to keep any system at its equilibrium. When everything you do feels effortless, you’ll have found your path.
+
+Seek the path of least resistance.
+
+If you focus on any specific part of your life, there will always be someone who has “more” than you.
+
+Only when we look down do we realize how fortunate we really are.
+
+## Chapter 12: Love is all you need
+
+Unconditional love is felt but not understood. It’s genuinely built upon “I love” and nothing more—no reasons or preconditions, no expectations and no demands, and consequently no disappointments.
+
+The more love you give, the more you get back.
+
+Gently remove the mask of ego and love what you see underneath.
+
+Studies show that only 4 percent of all women in Western societies believe they are beautiful, and more than 60 percent believe they need to be thinner to deserve to be loved
+
+Force yourself to write at least one thing a day that you’re proud of. Write down every compliment you receive: what it was, who said it, and what prompted it.
+
+Those who had spent their money on others reported feeling much happier at the end of the day than those who had spent it on themselves.
+
+## Chapter 13: L.I.P.
+
+Without death, there wouldn’t be life.
+
+Sooner or later, we all become ready to die.
+
+When it’s our time to die, none of us will be there. Death will never hurt you.
+
+Very other life-form are not a product of the physical world; it is a product of us, because by observing it, we make the physical world what it is.
+
+Live this moment as if it were your last.
+
+If your physical form—the avatar you use to navigate the physical world—is not the real you, then what difference does it make if you face a few challenges on the way?
+
+## Chapter 14: Who made who?
+

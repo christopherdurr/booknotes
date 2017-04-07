@@ -215,3 +215,15 @@ If your physical form—the avatar you use to navigate the physical world—is n
 
 ## Chapter 14: Who made who?
 
+Absence of a proof that something does not exist should be seen as a probability that it does.
+
+“Everybody worships. The only choice we get is what to worship.”
+
+
+The Nobel Laureate Christian B. Anfinsen calculated that it would take 1,026 years for a single simple protein to form by randomly sampling all possible folds until it arrives at a stable structure. This is more than a trillion times longer than the age of the universe!
+
+Often what we complain about is our own doing
+
+What happens is what’s supposed to happen
+
+

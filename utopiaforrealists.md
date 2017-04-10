@@ -39,10 +39,47 @@ What does working less solve?
 
 ## Chapter 3: Why we should give free money to everyone
 
-The Economist had to conclude that the “most efficient way to spend money on the homeless might be to give it to them.
+The Economist had to conclude that the “most efficient way to spend money on the homeless might be to give it to them."
 
 According to a study by the Massachusetts Institute of Technology, Give Directly’s cash grants spur a lasting rise in incomes (up 38% from before the infusion) and also boost home-ownership and possession of livestock (up 58%), while reducing the number of days that children go hungry by 42%
 
 Research has correlated unconditional cash disbursements with reductions in crime, child mortality, malnutrition, teenage pregnancy, and truancy, and with improved school performance, economic growth, and gender equality.
 
 Poverty is fundamentally about a lack of cash. It’s not about stupidity.
+
+## Chapter 4: Race against the Machine
+
+In the United States, the real salary of the median nine-to-fiver declined 14% between 1969 and 2009.
+
+Being just fractionally better than the rest means you’ve not only won the battle, you’ve won the war.
+
+Scholars at Oxford University estimate that no less than 47% of all American jobs and 54% of all those in Europe are at a high risk of being usurped by machines.
+
+“labor market polarization” is the widening gap between “lousy jobs” and “lovely jobs.” Though the share of highly skilled and unskilled jobs has remained fairly stable, work for the average-skilled is on a decline.
+
+## Chapter 5: The End of Poverty  
+
+The younger the age at which children escaped poverty, the better their teenage mental health.
+
+People who experience a sense of scarcity are good at managing their short-term problems. Poor people have an incredible ability – in the short term – to make ends meet, the same way that overworked CEOs can power through to close a deal.
+
+Lifting an American family out of poverty takes an average of about $4,500 annually
+
+In the end, the return on this investment, per child, would be:
+
+* 12.5% more hours worked
+* $3,000 annual savings on welfare
+* $50,000–$100,000 additional lifetime earnings
+* $10,000–$20,000 additional state tax revenues
+
+Depression, burnout, drug abuse, high dropout rates, obesity, unhappy childhoods, low election turnout, or social and political distrust, the evidence points to the same culprit every time: inequality.
+
+State economists calculated that a drifter living on the street cost the government $16,670 a year (for social services, police, courts, etc.). An apartment plus professional counseling, by contrast, cost a modest $11,000
+
+## Chapter 6: The Bizarre Tale of President Nixon and His Basic Income Bill
+
+President Nixon made a plan that would have been a massive step forward in the War on Poverty, guaranteeing a family of four $1,600 a year, equivalent to roughly $10,000 in 2016.
+
+Basic income didn’t cause poverty, but was adopted in precisely those districts where suffering was already the most acute
+
+## Chapter 7: Why it doesn't pay to be a banker

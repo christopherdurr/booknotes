@@ -83,3 +83,39 @@ President Nixon made a plan that would have been a massive step forward in the W
 Basic income didn’t cause poverty, but was adopted in precisely those districts where suffering was already the most acute
 
 ## Chapter 7: Why it doesn't pay to be a banker
+
+It goes without saying that the rule of law is necessary for a country to prosper. But now that the U.S. has 17 times the number of lawyers per capita as Japan, does that make American rule of law 17 times as effective?
+
+The fact that something is difficult does not automatically make it valuable.
+
+Studies show that countries with more managers are actually less productive and innovative
+
+“We wanted flying cars, instead we got 140 characters,”
+
+For every dollar a bank earns, an estimated equivalent of 60 cents is destroyed elsewhere in the economic chain. Conversely, for every dollar a researcher earns, a value of at least $5 – and often much more – is pumped back into the economy.
+
+## Chapter 8: New Figures for a New Era
+
+Technological advances figure as little more than pocket change in the GDP. Free products can even cause the economy to contract (like the call service Skype, which cost telecom companies a fortune). 
+
+If you were the GDP, your ideal citizen would be a compulsive gambler with cancer who’s going through a drawn-out divorce that he copes with by popping fistfuls of Prozac and going berserk on Black Friday. 
+
+Countries that score high on well-being, like Denmark, Sweden, and Finland, have a large public sector. 
+
+## Chapter 9: Beyond the Gates of the Land of Plenty
+
+Deworming children with intestinal complaints has been shown to yield 2.9 years of additional schooling for the absurdly small investment of $10 worth of treatment.
+
+$100 worth of free meals translates into an additional 2.8 years of educational attainment
+
+Only 3% of the world’s population lives outside their country of birth.
+
+A study by the Center for Immigration Studies – a think tank that opposes immigration – which found that immigration has virtually no effect on wages.
+
+If you correct for income and job status, immigrants actually take less advantage of public assistance.
+
+## Chapter 10: How Ideas Change the World
+
+Educated people are more unshakable in their convictions than anybody
+
+The word “crisis” comes from ancient Greek and literally means to “separate” or “sieve.” A crisis, then, should be a moment of truth, the juncture at which a fundamental choice is made. 

@@ -122,6 +122,40 @@ beyond just “Woot! You did the action a hundred times!”
 
 ## Chapter 7: The Third Core Drive - Empowerment of Creativity & Feedback
 
+Students who played Starcraft roughly an hour a day improved their memory, visual
+search and informational filtering abilities, as well as other cognitive skills 
+
+When you design a great gamified system, you want to make sure that there isn’t one
+standard way to win. Instead, provide users with enough meaningful choices that they can utilize
+drastically different ways to better express their creativity, while still achieving the Win-State.
+
+Studies have shown that people like something more when they are given a choice, compared
+to simply having one option. This holds true even if the multiple options are not as appealing
+compared to the single choice
+
+**Easy**: Think of an example where Core Drive 3: Empowerment of Creativity motivated you or others
+to take certain actions. Did it keep people engaged for longer?
+
+**Medium**: Think of the last time you were engaged in an activity that really drew you in. Did it involve
+a lot of creativity, strategy, or meaningful choices? If yes, describe the process in which these
+elements were brought out. If not, think of ways to add these components into the experience. Would
+that make the activity even more engaging?
+
+**Medium**: For your own project, think of ways you can implement Milestone Unlocks into the
+experience, while rewarding the users with Boosters once they hit the milestone. Are the Boosters
+something that users will see in a favorable light because it allows them to do what they desire to do,
+but more efficiently? Or is it something that users will perceive as a controlling tool to make what
+you want more efficient without caring about their own interests?
+
+## Chapter 8: The Fourth Core Drive - Ownership & Possession
+
+This Core Drive involves many elements such as virtual goods and virtual currencies, but it is also
+the primary drive that compels us to collect stamps or accumulate wealth
+
+People are much more likely to choose careers that sound similar to their own names
+
+Studies have even shown that we prefer brands and even spouses that remind us of our own names
+
 
 
 

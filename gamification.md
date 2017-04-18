@@ -87,6 +87,41 @@ about playing your part for the greater good.
 Besides offering stellar products with elegant design and meticulous engineering, Apple has been one
 of the few electronics companies that actually try to sell a higher meaning.
 
+## Chapter 6: The Second Core Drive - Development & Accomplishment
+
+This is the Core Drive where people are driven by a sense of growth and a need to
+accomplish a targeted goal.
+
+By adding that extra step of throwing in an egg yourself for betty crocker, people felt that they were actually baking a delicious dessert to compliment a meal.
+
+The average consumer prefers and trusts reviews by peers over those by professional critics
+
+If a user spends four seconds on an interface and can’t figure out what to do, they feel stupid and will start to disengage emotionally
+
+People do not take actions that are necessarily the most economical, but actions that make them feel the smartest
+
+When we see a progress bar that is taunting us as only being 70% of a human being, it gives us that extra push to finish the Desired
+Actions and achieve the Win-State of completeness.
+
+The Rockstar Effect is a gamification design technique where you make users feel like everyone is
+dying to interact with them. 
+
+*Urgent Optimism* is where the user feels optimistic that they can accomplish the task, but also the urgeny to act immediately.
+
+**Easy**: Think of an example where Core Drive 2: Development & Accomplishment motivated you or
+others to take certain actions. Did it keep people engaged for longer?
+
+**Medium**: Think of the last time you saw a points or achievement symbol system. Were the points or
+achievement symbols representing something meaningful? Or were they pointless? What would you
+change to make them represent a sense of true progress and accomplishment?
+
+**Hard**: For your own project, create a Status Points and Achievement Symbol economy via
+spreadsheets. Define what the Desired Actions are, assign point values to these actions based on how
+meaningful they are to the user, and assign Achievement Symbols based on more creative factors
+beyond just “Woot! You did the action a hundred times!”
+
+## Chapter 7: The Third Core Drive - Empowerment of Creativity & Feedback
+
 
 
 

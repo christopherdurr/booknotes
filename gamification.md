@@ -156,7 +156,132 @@ People are much more likely to choose careers that sound similar to their own na
 
 Studies have even shown that we prefer brands and even spouses that remind us of our own names
 
+When you create a product or service, it is often desirable for your users to increase their vested
+ownership in the process of its creation. This is why it is useful to have them involved in the
+development process early on – to “build from scratch.”
 
+This means that users should never feel like the exchangeable currency or goods are
+excessively abundant
+
+Monitor Attachment is a game technique that allows people to develop more ownership towards
+something, such that they are constantly monitoring or paying attention to it.
+
+**Easy**: Think about something you collected or had a unique sense of ownership with. Did you feel
+that it was “fun” to spend time with it, even though from an outsider’s perspective it could look like
+you weren’t doing anything with it?
+
+**Easy**: Think about something that has the Alfred Effect in your life. How did they implement it, and
+when did you recognize that effect was in place? Could it be designed to let users become aware of it
+sooner?
+
+**Medium**: Think about how you can introduce a Collection Set into a project that you are currently
+working on which will motivate users towards the Desired Actions. What kind of theme(s) can the
+collection set use? Do you want each piece to be given as an Earned Lunch whenever the user
+commits the Desired Actions, or have it as a Mystery Box where the pieces come out randomly after
+the Desired Actions?
+
+## Chapter 9: The Fifth Core Drive - Social Influence & Relatedness
+
+This Core Drive is the engine behind many themes such as mentorship, competition, envy, group quests, social treasure, and companionship.
+
+What we perceive as the social norm greatly influences our decisions and behavior, often more so than personal gains or even moral standards. 
+
+When you are leading a team, never lose sight of that Epic Meaning & Calling.
+
+When we implement competition in the workplace, we need to thoughtfully analyze the risks as well
+as the benefits, in determining whether there might be any significant and long-term harm to the
+employees and ultimately the enterprise
+
+**When competition works**:
+
+* In situations where players aim to achieve mastery of the task
+* In gain-oriented scenarios and mindsets where players focus on becoming the winner
+* When contestants reach their Individual Zone of Optimal Functioning (IZOF), which means their anxiety and arousal level reaches a heightened degree of focus
+* When players care about the welfare of the team
+* When players are primed to overcome obstacles, and not what they will do after reaching the goal
+* With situational anger to confrontations
+* When there is an even matchup and players feel that they actually have a chance
+* When players care about the competitors (competing against your friends instead of every stranger in the world)
+
+**Competition does not work**:
+
+* In learning-focused environments
+* In prevention-oriented situations and attitudes where players focus on not being the loser
+* When teams are too harmonious and competition becomes awkward
+* When creativity is required
+* When the competition is regarded as skewed and there is little chance to win
+
+**Easy**: Think of a time when you had a mentor. Did your behavior change because of the mentor? If
+you haven’t never had a mentor before, come up with a plan to obtain one.
+
+**Easy**: Think about a Social Treasure you received, or a Social Treasure that you were asked to give.
+Was it designed to encourage applicants to spread the name of a brand or project?
+
+**Medium**: Think about another example that heavily utilized Conformity Anchors to change behavior.
+How was it utilized and can it be improved?
+
+**Hard**: Think about how you can implement a Group Quest into the project you are doing right now
+that will motivate users towards the Desired Actions. Does it have a theme? Could it utilize
+collection sets and boosters to become even more engaging?
+
+## Chapter 10: The Sixth Core Drive: Scarcity & Impatience
+
+We buy things not because of their actual value, but rather based on their perceived value, which means many times our purchases aren’t very rational.
+
+When there is a perceived abundance, motivation starts to dwindle
+
+If you are always leaving the discussions, it means that you are not desperate,
+are highly sought after, and not dependent on this deal. You are the Prize. Klaff claims that, when you
+correctly do this, money will flow in.
+
+Magnetic Caps are limitations placed on how many times a user can commit certain Desired Actions,
+which then stimulates more motivation to commit them.
+
+A Torture Break is a sudden and often triggered pause to the Desired Actions.
+
+**Easy**: Think about a time where you wanted something, mostly because it was exclusive, or because
+you felt you were uniquely qualified. Try to describe the nature of that feeling from Scarcity &
+Impatience.
+
+**Medium**: Think about a time when a company attempted to implement a corny form of Scarcity, and it
+backfired because it caused people to go into denial. What could the company do to actually
+implement principles of Scarcity correctly?
+
+**Hard**: Think about how you can implement combinations of Dangling, Torture Breaks, Evolved UI,
+and Anchored Juxtaposition into one of your own projects. Does it automatically increase the desire
+for other Core Drives? Or does it hamper it? Does it drive long-term engagement, or short-term
+obsession?
+
+## Chapter 11: The Seventh Core Drive - Unpredictability & Curiosity
+
+It is important to give a pitch that continuously serves unexpected and unpredictable information to keep people engaged.
+
+Being “lucky” in a scenario of chance can install a higher sense of mission and purpose.
+
+The Glowing Choice technique is about applying an overlay item that shines like a bright star in the midst of a complex environment.
+
+Sudden rewards incentivize customers to keep coming back in the hopes that they can inadvertently feel the same bliss again.
+
+The reason why lotteries work so well is because our brains are incredibly bad at distinguishing
+small percentages.
+
+**Easy**: Think about your favorite TV-series (if you have one) that you are constantly glued to. Once
+you watched it through once, would you go back and watch it again alone? What happens to your
+motivation when Unpredictability diminishes?
+
+**Medium**: Unpredictability magnifies our emotions towards both gain (Core Drive 4) and Loss (Core
+Drive 8). Think about a scenario where unpredictability was attached to a gain and it made the entire
+experience more playful and exciting compared to a guaranteed chance of gain. Then, think about a
+scenario where it is tied to a loss and how it paralyzed activity more-so than if the loss had a sure
+chance of incurring. Can you see how unpredictability can make any event more emotional engaging
+through a Black Hat Intrinsic way?
+
+**Hard**: In your own project, try to design a Group Quest Mystery Box combo, where if the entire group
+commits various Desired Actions, a surprise reward will be given to everyone. Evaluate the pros and
+cons of that compared to just giving a Group Fix-Action Reward, where everyone already knows
+exactly what the reward is if they did the Desired Actions (Earned Lunch).
+
+## Chapter 12: The Eighth Core Drive - Loss & Avoidance
 
 
 

@@ -329,6 +329,59 @@ Hat game techniques to make them enjoy it and feel empowered?
 
 ## Chapter 13: Left Brain vs Right Brain Core Drives
 
+The Left Brain Core Drives involve tendencies related to logic, ownership, and analytical thought.
+
+They are expressed in the following three Core Drives:
+
+* Core Drive 2: Development & Accomplishment
+* Core Drive 4: Ownership & Possession
+* Core Drive 6: Scarcity & Impatience
+
+The Right Brain Core Drives are characterized by creativity, sociality, and curiosity and as illustrated
+by the following:
+
+* Core Drive 3: Empowerment of Creativity & Feedback
+* Core Drive 5: Social Influence & Relatedness
+* Core Drive 7: Unpredictability & Curiosity
+
+Left Brain Core Drives are by nature goal-oriented, while Right Brain Core Drives are experience oriented.
+Extrinsic Motivation focuses on results, while Intrinsic Motivation focuses on the process.
+
+Here is the test to determine if something is extrinsically or intrinsically motivated: if
+the goal or objective were removed, would the person still be motivated to take the Desired Action
+or not?
+
+Many studies have shown that Extrinsic Motivation, such as paying people money to perform a task, actually lowers the creative
+capability to perform the task. When people are thinking about the money, it distracts their focus from performance
+
+How to make an experience more intrinsic:
+
+1. Make the experience more social
+2. Add more unpredictability into the experience
+3. Add more meaningful choices and feedback
+
+**Easy**: Try reciting the Left Brain Core Drives and Right Brain Core Drives without looking at any
+cheat sheets.
+
+**Medium**: Think about how a company has engaged you through Left Brain Core Drives in the past by
+offering you a reward, and contemplate whether it affected your overall enthusiasm about the
+company itself after the reward campaign was finished.
+
+**Medium**: Think about how you can add at least one of the Right Brain Core Drives into a project you
+have done in the past or are currently doing. Would that have improved motivation and engagement
+for the tasks themselves?
+
+**Hard**: Try to design a full engagement campaign that lures users in with the Left Brain Core Drive of
+giving them a reward (Core Drive 4), and then start making users feel accomplished (Core Drive 2)
+while dangling new unlockables within the experience (Core Drive 6). Then transition into the Right
+Brain Core Drives by giving users Group Quests (Core Drive 5) that utilize plenty of creativity,
+meaningful choices, and boosters (Core Drive 3). Upon each Desired Action, serve them
+unpredictable rewards or content (Core Drive 7). After going through this design practice, do you feel
+a better grasp of all the things you can do when mastering the 8 Core Drives?
+
+
+
+
 
 
 

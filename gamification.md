@@ -380,9 +380,47 @@ unpredictable rewards or content (Core Drive 7). After going through this design
 a better grasp of all the things you can do when mastering the 8 Core Drives?
 
 
+## Chapter 14: The Mysteries of White Hat and Black Hat Gamification
 
+The White Hat Core Drives are represented by the Core Drives at the Top of the Octalysis diagram:
 
+* Core Drive 1: Epic Meaning & Calling
+* Core Drive 2: Development & Accomplishment
+* Core Drive 3: Empowerment of Creativity & Feedback
 
+The Black Hat Core Drives are represented by the Core Drives at the Bottom of the Octalysis
+diagram:
+
+* Core Drive 6: Scarcity & Impatience
+* Core Drive 7: Unpredictability & Curiosity
+* Core Drive 8: Loss & Avoidance
+
+A litmus test to determine whether gamification or human-focused design is ethical or not:
+
+1. Is there full transparency on its intended purpose?
+2. Does the user implicitly or explicitly opt-in to the system?
+
+In general (with some exceptions), it is better to first setup a White Hat environment to make users
+feel powerful and comfortable, then implement Black Hat designs at the moment when you need users
+to take that one Desired Action for conversion. At that point, users will likely take the Desired
+Action, but won’t feel very comfortable. This is when you transition quickly back to White Hat
+motivation to make them feel good about their experience.
+
+**Easy**: Try to recite the three White Hat Core Drives and the three Black Hat Core Drives without
+looking at them. Are you able to explain their differences?
+
+**Medium**: Think back on your own life and all the major decisions that you made: applying for
+schools, changing jobs, finding a significant other, moving to new locations. What Core Drives
+motivated you to make those decisions? Are they mostly for White Hat reasons, or Black Hat? Are
+you happier with the decisions that you made from White Hat Core Drives? Do you feel less
+comfortable with decisions that were driven by Black Hat Core Drives, but feel like you had little
+choice when the decision were made?
+
+**Hard**: Think of a campaign that you can design for your own project. Try to come up with ways to use
+White Hat Gamification to create motivation and desire, then switch to Black Hat Gamification to
+trigger important Desired Actions. Finally, understand how to transition user motivation back to
+White Hat Core Drives so they enjoy the experience fully and feel emotionally rewarded after
+committing the Desired Actions.
 
 
 

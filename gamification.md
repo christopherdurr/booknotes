@@ -283,6 +283,55 @@ exactly what the reward is if they did the Desired Actions (Earned Lunch).
 
 ## Chapter 12: The Eighth Core Drive - Loss & Avoidance
 
+This drive motivates through the fear of losing something or having undesirable events transpire.
+
+For a period of time, Farmville was able to successfully increase its Daily Active Users Metrics and lower short-term
+turnover with this type of Loss & Avoidance design. That is, until users hit a “Black Hat Rebound,”
+where they eventually burn out and find the courage to pursue freedom outside of Farmville.
+
+Utilizing this Black Hat Core Drive is extraordinarily powerful
+in getting someone to take the Desired Action, but in the long run, it demoralizes the user’s experience
+and creates burnout which can lead to high turnover. Once they commit the Desired Actions, people
+don’t want to ever put themselves in the same situation again
+
+Pride is an expensive thing to possess.
+
+Our inability to cope with sunk costs pushes us to take irrational actions – putting in good money to chase after bad money.
+
+Our happiness is almost exclusively determined by our expectations matched against our circumstances.
+
+*Rightful Heritage* This is when a system first makes a user believe something rightfully belongs to
+them (remember expectations matter a lot?), and then makes them feel like it will be taken away if
+they don’t commit the Desired Action.
+
+An *Evanescent Opportunity* is an opportunity that will disappear if the user does not take the Desired
+Action immediately
+
+*FOMO Punch*: This fear of regret, when prompted correctly, can penetrate through the behavioral inertia of Status Quo Sloth and
+trigger the Desired Action.
+
+**Easy**: Think about any activities that you are currently engaged in that are no longer enjoyable or
+meaningful, but you continue to do it because of Core Drive 8: Loss & Avoidance. How does that
+make you feel, and what would it take for you to stop that behavior?
+
+**Medium**: Think about a product that you still enjoy using, but are likely trapped in a Sunk Cost
+Prison, should you one day like to quit. Is much of your personal data such as photos or the fruits of
+your labor, stored in the service? Are important contacts or relationships siloed within the platform?
+Are important organizational data and insights recorded in the system and essentially impossible to
+export? Think carefully about how the companies carefully built the Sunk Cost Prison while you still
+enjoyed their services, and how you can possibly escape it when you would like to switch.
+
+**Hard**: Evanescent Opportunities, Countdown Timers, and FOMO Punches often work together to
+counter Status Quo Sloth and Sunk Cost Prisons. Can you devise a combination of these three game
+techniques in an optimal manner that can get people to leave their previous habitual comfort zones
+and give your project a try? After you grab the users into your experience, how would you add White
+Hat game techniques to make them enjoy it and feel empowered?
+
+## Chapter 13: Left Brain vs Right Brain Core Drives
+
+
+
+
 
 
 

@@ -98,5 +98,28 @@ One great way to do this is to mislabel one of the other party’s emotions or d
 
 ## Chapter 5: Trigger the two words that immediately transform any negotiation
 
+The sweetest two words in any negotiation are actually “That’s right.”
+
+How to trigger somebody to say "That's right":
+
+1. Effective Pauses: Silence is powerful. 
+2. Minimal Encouragers
+3. Mirroring
+4. Labeling
+5. Paraphrase
+6. Summarize: Paraphrasing + Labeling
+
+Driving toward “that’s right” is a winning strategy in all negotiations. But hearing “you’re right” is a
+disaster.
+
+Creating unconditional positive regard opens the door to changing thoughts and
+behaviors. Humans have an innate urge toward socially constructive behavior. The more
+a person feels understood, and positively affirmed in that understanding, the more likely
+that urge for constructive behavior will take hold.
+
+## Chapter 6: Bend Their Reality
+
+
+
 
 

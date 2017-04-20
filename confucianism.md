@@ -1,8 +1,6 @@
 # Analects of Confucius
 ## Notes by Christopher Durr
 
-Note: This is not a representation of the entirety of my beliefs and faiths. These notes simply serve as a reference to understand other cultures. 
-
 ## Book 1
 
 Proper behavior towards parents and elder brothers is the trunk of goodness

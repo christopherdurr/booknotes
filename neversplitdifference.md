@@ -53,3 +53,50 @@ goal is to uncover as much information as possible.
 To quiet the voices in your head, make your sole and all-encompassing focus the other
 person and what they have to say.
 
+## Chapter 3: Don't feel their pain, label it
+
+Emotions aren’t the obstacles, they are the means.
+
+Playing dumb is a valid negotiating technique, and “I don’t
+understand” is a legitimate response. But ignoring the other party’s position only builds up frustration
+and makes them less likely to do what you want.
+
+When we closely observe a person’s face, gestures, and tone of voice, our brain begins to align with theirs in a process
+called neural resonance, and that lets us know more fully what they think and feel
+
+Labeling is a way of validating someone’s emotion by acknowledging it. Give someone’s emotion
+a name and you show you identify with how that person feels. Once you’ve thrown out a label, be quiet and listen.
+
+The fastest and most efficient means of establishing a quick working relationship is to acknowledge the negative
+and diffuse it.
+
+List every terrible thing your counterpart could say about you, an *accusation audit*
+
+Remember you’re dealing with a person who wants to be appreciated and understood. So
+use labels to reinforce and encourage positive perceptions and dynamics.
+
+## Chaper 4: BEWARE “YES”—MASTER “NO”
+
+For good negotiators, “No” is pure gold. That negative provides a great
+opportunity for you and the other party to clarify what you really want by eliminating what you don’t
+want. 
+
+“No” is the start of the negotiation, not the end of it
+
+Your invitation for the other side to say “No” has an amazing power to bring
+down barriers and allow for beneficial communication.
+
+There are actually three kinds of “Yes”: Counterfeit, Confirmation, and Commitment.
+
+Using all your skills to create rapport, agreement, and connection with a counterpart is useful, but
+ultimately that connection is useless unless the other person feels that they are equally as responsible,
+if not solely responsible, for creating the connection and the new ideas they have.
+
+Sometimes, if you’re talking to somebody who is just not listening, the
+only way you can crack their cranium is to antagonize them into “No.”
+One great way to do this is to mislabel one of the other party’s emotions or desires
+
+## Chapter 5: Trigger the two words that immediately transform any negotiation
+
+
+

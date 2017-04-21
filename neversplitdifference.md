@@ -119,6 +119,65 @@ that urge for constructive behavior will take hold.
 
 ## Chapter 6: Bend Their Reality
 
+Negotiation is never a linear formula: add X to Y to get Z. We all have irrational blind spots, hidden needs, and undeveloped notions
+
+We don’t compromise because it’s right; we compromise because it is easy and because it saves face.
+
+Deadlines are often arbitrary, almost always flexible, and hardly ever trigger the consequences we think—or are told—they will.
+
+While we may use logic to reason ourselves toward a decision, the actual decision making is governed by emotion.
+
+Early on in a negotiation, say, “I want you to feel like you are being treated fairly at all times. So please stop me at any time if you feel I’m being unfair, and we’ll address it.”
+
+People are drawn to sure things over probabilities, even when the probability is a better choice. That’s called the **Certainty Effect** 
+
+How to get leverage in a negotiation:
+
+1. Anchor their emotions
+2. Let the other guy go first: let the other side anchor monetary negotiations.
+3. Establish a range
+4. Pivot to nonmonetary terms
+5. When talking numbers, use odd ones
+6. Give a gift
+
+How to negotiate a better salary
+
+1. Be persistent on nonsalary issues
+2. Have salary terms and success terms
+3. Spark their interest in your success and gain a mentor
+
+The F-word—“Fair”—is an emotional term people usually exploit to put the other side
+on the defensive and gain concessions. When your counterpart drops the F-bomb, don’t
+get suckered into a concession. Instead, ask them to explain how you’re mistreating them.
+
+## Chapter 7: Create the illusion of control
+
+What about this is important to you?
+* How can I help to make this better for us?
+* How would you like me to proceed?
+* What is it that brought us into this situation?
+* How can we solve this problem?
+* What’s the objective? / What are we trying to accomplish here?
+* How am I supposed to do that?
+
+The implication of any well-designed calibrated question is that you want what the other guy
+wants but you need his intelligence to overcome the problem. This really appeals to very aggressive
+or egotistical counterparts
+
+Even with all the best techniques and strategy, you need to regulate your emotions if you
+want to have any hope of coming out on top
+
+Don’t ask questions that start with “Why” unless you want your counterpart to defend a
+goal that serves you. “Why” is always an accusation, in any language.
+
+## Chapter 8: Guarantee Execution
+
+Your job as a negotiator isn’t just to get to an agreement. It’s getting to one
+that can be implemented and making sure that happens
+
+The trick to “How” questions is that, correctly used, they are gentle and graceful ways to say
+“No” and guide your counterpart to develop a better solution—your solution. 
+
 
 
 

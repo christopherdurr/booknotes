@@ -178,6 +178,28 @@ that can be implemented and making sure that happens
 The trick to “How” questions is that, correctly used, they are gentle and graceful ways to say
 “No” and guide your counterpart to develop a better solution—your solution. 
 
+## Chapter 9: Find the Black Swan
+
+Negotiation breakthroughs—when the game shifts inalterably in your favor—are created by those
+who can identify and utilize Black Swans.
+
+Types of Leverage:
+
+* **Positive Leverage**: Your ability as a negotiator to provide—or withhold—things that your counterpart wants.
+* **Negative Leverage**: You can tell your counterpart, “If you don’t fulfill your commitment/pay your bill/etc., I will destroy your reputation.”
+* **Normative Leverage**: Using the other party’s norms and standards to advance your position
+
+* Review everything you hear. You will not hear everything the first time, so double-check. Compare notes with your team members. You will often discover new information that will help you advance the negotiation.
+* Use backup listeners whose only job is to listen between the lines. They will hear things you miss.
+
+People respond favorably to requests made in a reasonable tone of voice and followed with a “because” reason.
+
+Common reasons negotiators mistakenly call their counterparts crazy:
+
+1. Other side is ill-informed
+2. Other side is constrained
+3. They have other interests
+
 
 
 

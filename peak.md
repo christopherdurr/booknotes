@@ -40,5 +40,58 @@ stress + rest = growth.
 
 * Only take on a few challenges at once. Otherwise you’ll literally run out of energy.
 
+## Rethinking Stress
+
+Stress isn’t just harmful; it can also serve as a stimulus for growth and adaptation.
+
+Growth comes at the point of resistance; we learn by pushing ourselves to the outer reaches of our abilities.
+
+The greatest gains often follow immense struggle and discomfort.
+
+Only seek out support after you’ve allowed yourself to struggle.
+
+The little voice inside your head saying, “I can’t possibly do this,” is actually a sign that you’re on the right track. It’s your mind trying to pull you back to the familiar path that represents your comfort zone. 
+
+* Think of a skill/capability that you want to grow.
+
+* Assess your current ability to perform this skill/capability.
+
+* Actively seek out challenges that just barely exceed your ability.
+
+* If you feel fully in control, make the next challenge a bit harder.
+
+* If you feel anxious or so aroused that you can’t focus, dial things down a notch.
+
+## Stress Yourself
+
+**Performance Practices**
+
+* Define a purpose and concrete objectives for each working session.
+* Ask yourself: What do I want to learn or get done?
+* Focus and concentrate deeply, even if doing so isn’t always enjoyable.
+* Single-task: The next time you feel like multitasking, remind yourself that research shows it’s not effective. Keep in mind Dr. Bob’s secret: “Do only one thing at a time.”
+* Remember that quality trumps quantity.
+
+Identify what interrupts your deep focus. Common intruders, many of which are enabled by smartphones, include:
+
+* Text messages
+* Social media
+* The internet
+* Television
+* Remove distractors: Remember that only out of sight truly leads to out of mind.
+
+* Divide your work into chunks of 50 to 90 minutes (this may vary by task). Start even smaller if you find yourself struggling to maintain attention.
+* As you develop “fitness” in whatever it is you are doing, you’ll likely find that you can work longer and harder.
+* For most activities and most situations, 2 hours should be the uppermost limit for a working block.
+
+When you try to suppress pre-event nerves, you are inherently telling yourself that something is wrong. Not only does this make the situation worse, but it also takes emotional and physical energy to fight off the feeling of anxiety—energy that could be better spent on the task at hand.
+
+
+**Performance Practices**
+* Remember the power of mindset: How you view something fundamentally changes how your body responds to it.
+* In situations when you feel the sensation of stress, remind yourself this is your body’s natural way of preparing for a challenge; take a deep breath and channel the heightened arousal and sharper perception toward the task at hand.
+* Challenge yourself to view stress productively, and even to welcome it. You’ll not only perform better, you’ll also improve your health.
+
+## The Paradox of Rest
 
 

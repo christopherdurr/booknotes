@@ -186,7 +186,7 @@ When approaching potential partners:
 
 Lay down in public for 10 seconds
 
-#Step 4: Liberation
+# Step 4: Liberation
 
 Ask yourself - "Why the hell not?"
 

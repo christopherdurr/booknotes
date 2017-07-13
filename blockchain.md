@@ -1,5 +1,5 @@
-#The Business Blockchain by William Mougayar
-##Notes by Christopher Durr
+# The Business Blockchain by William Mougayar
+## Notes by Christopher Durr
 
 ## Chapter 1: What is the Blockchain?
 

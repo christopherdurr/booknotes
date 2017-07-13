@@ -1,6 +1,6 @@
-#The Four Hour Workweek
-##By Tim Ferriss
-##Notes by Christopher Durr
+# The Four Hour Workweek
+## By Tim Ferriss
+## Notes by Christopher Durr
 
 How to reinvent yourself: **DEAL**
 
@@ -9,7 +9,7 @@ How to reinvent yourself: **DEAL**
 * **AUTOMATION**: Puts cashflow on autopilot using arbitrage, outsourcing, and rules of nondecision
 * **LIBERATION**: Breaking the bonds that confine you to a single location
 
-#STEP 1: DEFINITION
+# STEP 1: DEFINITION
 
 Being financially rich and having the ability to live like a millionaire are fundamentally two very different things.
 
@@ -75,7 +75,7 @@ When making goals:
 
 Learn to eye gaze
 
-#STEP 2: Elimination
+# STEP 2: Elimination
 
 1. Doing something unimportant well does not make it important.
 2. Requiring a lot of time does not make a task important. 
@@ -122,7 +122,7 @@ People are smarter than you think. Give them a chance to prove themselves. '
 
 Say “no” to all requests. Don’t be selective.
 
-#STEP 3: AUTOMATION
+# STEP 3: AUTOMATION
 
 Never automate something that can be eliminated, and never delegate something that can be automated or streamlined
 

@@ -72,3 +72,9 @@ You have to have a positive outlook about people. You have to believe that peopl
 
 Get over the idea that there’s a scarcity of money because there isn’t! There’s plenty of money to go around. If you start looking for prosperity and abundance, you’ll see that these things exist all around you.
 
+Second money is easier to get than first money.
+
+Your prospect, regardless of what he says, always wants more, not less. Believe it or not, people love to spend money, and the more money they spend, the more they enjoy spending it and the more they will enjoy their decision
+
+People love showing off.
+

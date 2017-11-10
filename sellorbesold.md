@@ -78,3 +78,42 @@ Your prospect, regardless of what he says, always wants more, not less. Believe 
 
 People love showing off.
 
+
+## Chapter 8
+
+If you don’t show as much interest in the buyer and his concerns as you do in selling, he’ll know that you are only in it for the commission.
+
+People are senior to processes employed by companies. No product or sales process will ever be successful if it doesn’t make people senior!
+
+## Chapter 9 
+
+Try to agree with everyone you talk to for a single day.
+
+Agree and then offer the buyer an opportunity to find the solution before you offer one to find out how much of an objection it actually is.
+
+If you want people to agree with your viewpoint, all you’ve got to do is agree with their position, agree with their opinions, and step into their shoes for a moment.
+
+## Chapter 10
+
+Prospects do not make sales, either. It is the salesperson’s job to make the sale. Whether or not the sale happens is entirely up to the salesperson, not the prospect.
+
+The buyer who says, “I’m not buying today,” is indicating his lack of trust of either salespeople or his ability to make good decisions.
+
+Always assume that the buyer doesn’t trust a single word you say to him. He might not even believe that your name is what you say it is, which is why you need to create something that buyers know they can trust because they can see it. 
+
+Always, always, always write down what you’ve said, offered, proposed, promised, implied, and suggested. Anytime you’re going for the close, insist on putting it in writing.
+
+* Never sell with words. Always show documentation.
+* Never negotiate with words. Write your negotiations down on paper.
+* Never ask for the close with words. Use a buyer’s order.
+* Never make verbal promises. Put all of your assurances in writing.
+* The more data you provide, the better. Don’t be afraid to use a lot of data.
+* Keep your information current.
+* Have your written information available and easy to access.
+* Use third-party data as much as possible.
+* The more you’re able to access the data in real time, the better. Real-time data are preferable to prepared data.
+* Use computer-generated data whenever possible.
+* Have Internet access available so you can pull the data up in front of the customer and he can see that it hasn’t been contrived or manipulated.
+
+People believe what they see, not what they hear. So show them, don’t tell them!
+

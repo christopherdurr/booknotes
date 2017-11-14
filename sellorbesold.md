@@ -117,3 +117,38 @@ Always, always, always write down what you’ve said, offered, proposed, promise
 
 People believe what they see, not what they hear. So show them, don’t tell them!
 
+## Chapter 11
+
+The true essence of selling is not just getting the sale, but the sincere desire to help. A spiritually aware person will ultimately be a better salesperson than someone who’s just interested in compensation.
+
+Give all of you to a prospect, not just a part of you. Give all of your attention, all of your energy, all of your suggestions, all of your information
+
+Show each customer how important they are to you and how they’re the most important person in your universe. If you can do that you will be rewarded. If you chase two rabbits at the same time, both will get away.
+
+You don’t have to trick or deceive to sell. You have to be willing to serve and help people before you’ll get the close. A buyer will pay extra for great service, a great attitude, ease of purchase, convenience, and being made to feel special. Look at how you can create a level of service that separates you from others. 
+
+Service is always senior to selling—always.
+
+## Chapter 12
+
+Most people will not just give you the money without you asking, persisting, and being willing to “hard sell.”
+
+You’re certain that your service is superior to that of anyone anywhere and ultimately the only right choice your customer can make, and you insist on it because of this belief. Because you believe this so deeply, you’re willing to stay in the deal even when it gets uncomfortable and people are squirming, making excuses, and becoming difficult.
+
+The willingness to stay and persist even when the prospect becomes noisy is what separates the professional, consistent closer from the amateur who randomly closes deals.
+
+The more you practice handling objections, the more natural you’ll sound.
+
+You’ll almost never close a deal if you’re standing up. Sit your clients down and show them what you can do for them.
+
+## Chapter 13
+
+The amount of success you have is limited by the amount of action you take. Stay away from the people who tell you to stop working so hard and suggest that you should relax and take it easy. Go massive, not passive
+
+Doing too much will never fail you, but doing too little always will.
+
+Anyone who tells you that you’re working too hard is not working hard enough. 
+
+Don’t quit until you get new problems—problems like taxes, cars, homes, and where to go on vacation.
+
+Never be reasonable when it comes to taking action. Just take more action. Be almost insane with how much action you take to get the job done.

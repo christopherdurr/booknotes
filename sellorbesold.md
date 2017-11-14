@@ -152,3 +152,21 @@ Anyone who tells you that you’re working too hard is not working hard enough.
 Don’t quit until you get new problems—problems like taxes, cars, homes, and where to go on vacation.
 
 Never be reasonable when it comes to taking action. Just take more action. Be almost insane with how much action you take to get the job done.
+
+## Chapter 14
+
+ The easiest sale you’ll ever make in your life is the one to those people who already know you, trust you, and want to help you. Everyone has a power base or a fan club. Don’t ignore it; work it, use it, and mine it like gold.
+ 
+ Your power base includes, but is not limited to, friends, family members, associates at past jobs, past employers, current and former clients, members of clubs, neighbors, members of organizations you belong to, members of your church, and believe it or not, even people who didn’t like you in high school.
+
+it’s easier to sell a past enemy than it is to sell someone you’ve never met. 
+
+Complaints are one of the most overlooked opportunities for additional sales. Problems are opportunities
+
+## Chapter 15
+
+It’s actually a lie when you tell yourself that you don’t have enough time! The fact is, you have the same amount of time as everyone else; you just aren’t using it efficiently.
+
+I made it a firm policy that if I wasn’t eating with clients or potential clients, I’d eat lunch in my office while I called clients.
+
+Going to lunch with your boss will not get you job security, but selling more products will.

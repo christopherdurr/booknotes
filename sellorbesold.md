@@ -170,3 +170,21 @@ It’s actually a lie when you tell yourself that you don’t have enough time! 
 I made it a firm policy that if I wasn’t eating with clients or potential clients, I’d eat lunch in my office while I called clients.
 
 Going to lunch with your boss will not get you job security, but selling more products will.
+
+## Chapter 16
+
+It’s easy for a buyer to say no to a product or a company, but it’s extremely difficult to say no to a positive experience with another human being. When something makes you feel good, you want more of it, whether it makes sense or not.
+
+The reality is, people with good attitudes are luckier than people with bad attitudes. There is no treasure greater than a great attitude and no way to get real treasures without having a great attitude!
+
+Remember that a product can be shopped, but a great attitude cannot. A price can be beat, but a great attitude is priceless. There’s nothing more valuable to anyone than a positive person.
+
+It is not enough just to be positive; you have to actually protect yourself against those who are being negative. Watch out for friends, family, work associates, and others around you who have an agenda of negatively affecting those around them. 
+
+1. Avoid newspapers, television, and radio.
+2. Stay away from “can’t do” people, people who have trouble in life, and people who don’t do well. You can try to help people, but don’t hang around with them and be affected negatively. This includes family and friends.
+3. Get everyone in your life on the same page with where you’re going and what you want in your life, as well as what’s expected of them in order for you to get there!
+4. Avoid drugs and alcohol because of the negative influence they have on your mind. They make you lethargic, slow, and unsure! Prescription drugs affect the mind as badly as the street drugs do, and some are proving to be even more dangerous. Just look at the side effects and warning labels. Control your attitude by being aware and alert, not by being drugged and numbed.
+5. Avoid hospitals and doctors if at all possible. Go see them when you absolutely have to, but that’s it. I’ve seen too many people get worse after they spend time with doctors and hospitals. Hospitals appear to be “sick factories” rather than places that heal people. Just watch people as they leave.
+6. Treat negative talk like garbage. Put up a sign in your home and your office that reads, NO-NEGATIVE-TALK ZONE. Don’t allow people to talk negatively around you. You don’t need it. Treat it like garbage and don’t allow anyone to leave their garbage in your environment.
+7. Start the negativity diet today.

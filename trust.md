@@ -46,7 +46,7 @@ Even if people don’t believe that vaccines cause harmful side-effects such as 
 
 That doesn’t mean we all need to understand precisely how a technology functions, whether it was a combustion engine back then or a blockchain now. However, we do need to grasp what it can do and what it can give us. Until that chasm is crossed, we won’t abandon what we already have.
 
-The typical American commuter spends on average more than fifty-two minutes per day stuck in traffic. That adds up to more than 4 billion hours of wasted time in the United States alone, time we could use in better ways.30 ‘People want to know what they will be able to do if they are freed from driving the car,’
+The typical American commuter spends on average more than fifty-two minutes per day stuck in traffic. That adds up to more than 4 billion hours of wasted time in the United States alone, time we could use in better ways. ‘People want to know what they will be able to do if they are freed from driving the car,’
 
 Humans are not ‘risk mutual’ people. In other words, they don’t place the same weight on things going well as things going badly. 
 

@@ -44,7 +44,7 @@ Smart contracts help make the breach of an agreement expensive because they cont
 
 Writing a simple contract is easy, especially if you are using a specific smart contract language 
 
-mart oracles contain a real-world representation of information, such as an identity, an address, or a certificate, and they could also have agent-like property that directs the smart contract to behave in a certain way.
+Smart oracles contain a real-world representation of information, such as an identity, an address, or a certificate, and they could also have agent-like property that directs the smart contract to behave in a certain way.
 
 Examples: Netki, OneName, BitID, Identifi.
 
@@ -80,7 +80,7 @@ Blockchain infrastructures have multiple built-in redundancies, and are very res
 
 Soon, we will be able to get a “proof for everything.” The vision is this: trust checking should be a frictionless process, as easy as your searches on Google.
 
-DAO (Distributed Autonomous Organization)
+A DAO is a Distributed Autonomous Organization 
 
 There are many ways in which governments can use blockchain-based services
 

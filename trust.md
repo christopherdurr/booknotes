@@ -38,7 +38,7 @@ The trust stack goes like this: first, we have to trust the idea; then the compa
 
 Trust in new inventions doesn’t happen by accident. There are some universal psychological and emotional hurdles to overcome first. The conditions that enable that to happen are summed up in three key notions: the California Roll principle, the WIIFM factor (‘what’s in it for me’) and trust influencers. The California Roll principle is based on the underlying rule of combining something new with something familiar to make it ‘strangely familiar’.
 
-Apple does it through a design feature Steve Jobs called ‘skeuomorphism’.12 It’s a catch-all term for when design cues are taken from common objects or elements in the physical world.
+Apple does it through a design feature Steve Jobs called ‘skeuomorphism’. It’s a catch-all term for when design cues are taken from common objects or elements in the physical world.
 
 Investors will run through ‘what if’ scenarios when assessing a deal. Specifically, ‘What’s the worst that can happen when using this product or service?’ In the case of Airbnb, a lot can happen and has since happened. Airbnb’s success rests on having been able to get people to make that staggering leap of trust and overcome our natural ‘stranger danger’ bias.
 

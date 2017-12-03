@@ -94,7 +94,7 @@ There are many ways in which governments can use blockchain-based services
 
 Blockchain’s capabilities are going to be a silver bullet that will fix the challenges with medical records and patient data privacy.
 
-Uses of the blockchain the medical industry include:
+Uses of the blockchain in the medical industry include:
 
 * Sharing our patient data in the aggregate, while anonymizing it to ensure privacy is maintained. This is helpful in research, and for comparing similar cases against one another.
 * Recording and time-stamping delivery of medical procedures or events, in order to reduce insurance fraud, facilitate compliance and verification of services being rendered.

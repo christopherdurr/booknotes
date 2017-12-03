@@ -58,7 +58,7 @@ The World Wide Web’s original Hypertext Protocol is getting augmented by a new
 
 The blockchain will meet resistance, be misunderstood and rejected, until it is widely accepted. 
 
-Popularity of certification programs, such as from the CryptoCurrency Certification Consortium (C4)
+Popularity of certification programs, such as from the CryptoCurrency Certification Consortium (C4), will increase acceptance
 
 There is a lack of standards when it comes to the blockchain
 

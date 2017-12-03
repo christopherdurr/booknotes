@@ -220,7 +220,7 @@ Absence of a proof that something does not exist should be seen as a probability
 “Everybody worships. The only choice we get is what to worship.”
 
 
-The Nobel Laureate Christian B. Anfinsen calculated that it would take 1,026 years for a single simple protein to form by randomly sampling all possible folds until it arrives at a stable structure. This is more than a trillion times longer than the age of the universe!
+The Nobel Laureate Christian B. Anfinsen calculated that it would take 1,026 years for a single simple protein to form by randomly sampling all possible folds until it arrives at a stable structure. 
 
 Often what we complain about is our own doing
 

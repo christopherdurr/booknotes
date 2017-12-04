@@ -51,3 +51,33 @@ The typical American commuter spends on average more than fifty-two minutes per 
 Humans are not ‘risk mutual’ people. In other words, they don’t place the same weight on things going well as things going badly. 
 
 Trust influencers are groups of people who can disproportionately influence a significant change in the way we do something; they set new social norms.
+
+## Chapter 9: Blockchain Part I
+
+Money can be anything–paper, coins, shells, beads or stone–as long as people have faith in its value. ‘How many of us have literal direct assurance of the existence of most items we regard as constituting our wealth?’ wrote Friedman. ‘Entries in a bank account, property certified by pieces of paper called share of stocks, and so on and on.’
+
+The root problem with conventional currency is all the trust that’s required to make it work. The central bank must be trusted not to debase the currency, but the history of fiat currencies is full of breaches of that trust
+
+For the first time in the history of humanity, there is the potential to create a permanent public record of who owns what, which no single person or third party controls or underwrites, and where we can all reliably agree on the correctness of what is written.
+
+Every bitcoin transaction, however small, contains a difficult mathematical puzzle (known as a proof-of-work calculation) that has to be solved through trial and error. The puzzle works as evidence of the transaction’s legitimacy. Essentially, transaction-clearing responsibilities, which are traditionally managed by centralized banks, are now distributed into the hands of many miners and thousands of computers in the bitcoin network. Trust is shared out.
+
+Bitcoin mines don’t just need hardcore processing power. They need cheap electricity, lots of it. One miner’s electric bill was so high police raided his house suspecting he was growing pot. ‘We thought it was a major grow operation… but this guy had some kind of business involving computers. I don’t know how many computer servers we found in his home,’ said a baffled DEA agent.
+
+It is estimated that 70 per cent of the transactions on the bitcoin network are going through just four Chinese companies, mining powerhouses.
+
+Digital currency is just the beginning. The truly revolutionary invention is the blockchain, the vast underlying trust architecture.
+
+## Chapter 10: Blockchain Part II
+
+The DAO started out as a radical social experiment. Could a company run itself without executives, managers, a board or any type of chief? Could smart computer code make decisions and autonomously run the organization in place of individuals? And could a blockchain sit under it all as its digital ledger?
+
+‘Ultimately, power is a zero sum game,’ Buterin says, ‘and if you talk about empowering the little guy, as much as you want to couch it in flowery terminology that makes it sound fluffy and good, you are necessarily disempowering the big guy. And personally I say screw the big guy. They have enough money already.’
+
+Ethereum is designed to allow developers to spawn blockchain-based offerings that fall into three main categories or ‘buckets’. The first bucket is based on being able to transfer any kind of asset–from shares to concert tickets–in a fast and transparent way on the blockchain.
+
+The second bucket of applications uses the blockchain to track the supply chain of products, from their provenance to the hands of the customer. 
+
+The DAO fund falls into the third, and perhaps most ambitious, bucket of blockchain applications: smart contracts. A smart contract is essentially a digital agreement, whether it’s for a loan, job or an investment, which lives on the blockchain.
+
+Investment funding in blockchain-related start-ups has increased globally from an estimated $1.3 million in 2012 to more than $1.4 billion in 2016, according to PwC.

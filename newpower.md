@@ -59,4 +59,6 @@ by the New York Times was not a groundbreaking piece of investigative journalism
 twenty-five-question quiz that allowed readers to find their “personal dialect map,” the
 place in the United States where people used language and phrases most similarly to them.
 
+## Chapter 4
+
 

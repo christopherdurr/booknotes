@@ -38,3 +38,39 @@ It is often better to link to a home page whose address
 is unlikely to ever change and give readers a title that can be searched.
 
 ## Chapter 4
+
+Speaking off the record means that a reporter can quote what a source says, but they may not be identified by name or title. 
+
+## Chapter 5
+
+Reputable publications correct their errors promptly and prominently.
+
+Always try to track down the original source for some story that you may consider citing or tweeting.
+
+## Chapter 6
+
+Not all academic sources are equal; universities are better than think tanks.
+
+You cannot necessarily trust those anointed as “experts” on cable news or even in quality newspapers to really be experts on the subjects they are talking about. 
+
+One way to find academic research is by using Google Scholar
+
+CRS reports are recommended for those seeking an unbiased, authoritative, and reasonably accessible summary and analysis of some topic of current interest, such as health reform or tax reform.
+
+https://www.washingtonpost.com/news/monkey-cage 
+
+## Chapter 7
+
+Virtually all public libraries allow free online access to extremely valuable news and research databases.
+
+Search engines of major newspapers are invaluable.
+
+## Chapter 8
+
+Price data from the past needs to be routinely adjusted for inflation.
+
+Large numbers, such as the federal budget, are often best expressed as percentages of GDP.
+
+A source of confusion arises from using an average or mean figure when the median may better convey what is happening. 
+
+Be skeptical, and don’t be afraid to question a source or demand better context.

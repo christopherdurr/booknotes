@@ -49,3 +49,25 @@ Games drive innovation. They helped drive adoption of the mouse, computer graphi
 PC sound, chat and online communities.
 
 ## Chapter 3: Virtual Storytelling
+
+The lines of truth and illusion are blurring. People
+express concern about this phenomenon, perhaps rightfully so, but humans have been
+blurring truth and illusion for thousands of years. Now we have a cooler, more
+immersive, entertaining and memorable way of doing it.
+
+The Academy Awards will have new categories for VR films as well as the traditional style
+
+In a massive undertaking, WDI used VR to design the $5.5 billion Shanghai
+Disneyland which opened in September 2016. Also in the works are Avatar Land for
+Orlando and a new Hong Kong Disneyland, as well as Star Wars for multiple
+properties.
+
+VR has already enabled a new form of spectator sport: drone racing. Players race
+unmanned drones at speeds up to 200 mph. The devices zoom over, around and
+through obstacles set up in athletic stadiums and shopping malls.
+
+Virtual events have some advantages over real events: Virtual attendance space is
+unlimited, so a big-name rock group could perform on AltSpace and sell tickets to fans
+worldwide
+
+## Chapter 4: Standing Upright

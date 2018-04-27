@@ -71,3 +71,22 @@ unlimited, so a big-name rock group could perform on AltSpace and sell tickets t
 worldwide
 
 ## Chapter 4: Standing Upright
+
+Mark Zuckerberg, whose company
+invested $2 billion for Oculus Rift VR headsets, has declared that AR will go
+mainstream on phones before glasses.
+
+Pokemon Go is a good example of AR
+
+Pinpoint marketing is the ability for brands to make offers to people based on their location, time of
+day, personal profiles and buying patterns. 
+
+Snapchat’s acquisition of Obvious Engineering will enable Snapchatters to take 3D selfies.
+
+There are at least 10 AR headset brands today
+
+AR has increased value in industrial and niche environments, where appearance is not an issue and the objective
+is for employees to have hands-free access to relevant data
+
+## Chapter 5: The Main Event
+

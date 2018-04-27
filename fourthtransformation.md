@@ -90,3 +90,17 @@ is for employees to have hands-free access to relevant data
 
 ## Chapter 5: The Main Event
 
+Chris Capossela, Microsoft CMO, declared in April 2016, two months after
+HoloLens started shipping, “We totally underestimated the commercial interest in this
+thing,” 
+
+Two issues with AR headsets:
+
+1. Self-containment. The CPU, GPU (graphics processing unit), Wi-Fi, power, wiring, sensors, cameras, 3D screens, stereoscopic sounds and other componentry all need to be contained in a single, hands-free wearable device
+2. Software: the emergence of productivity and communications software
+
+Magic Leap creates a visual effect in which those wearing the devices can barely tell what is real and what is not, because the lens optics are vastly superior to those contained in earlier headsets.
+
+Apple has more cash reserves than the United Kingdom.It  keeps cash reserves of over $200 billion
+
+## Chapter 6: The Missing Link

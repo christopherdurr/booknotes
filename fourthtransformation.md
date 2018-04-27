@@ -91,8 +91,7 @@ is for employees to have hands-free access to relevant data
 ## Chapter 5: The Main Event
 
 Chris Capossela, Microsoft CMO, declared in April 2016, two months after
-HoloLens started shipping, “We totally underestimated the commercial interest in this
-thing,” 
+HoloLens started shipping, “We totally underestimated the commercial interest in this thing.” 
 
 Two issues with AR headsets:
 
@@ -101,6 +100,17 @@ Two issues with AR headsets:
 
 Magic Leap creates a visual effect in which those wearing the devices can barely tell what is real and what is not, because the lens optics are vastly superior to those contained in earlier headsets.
 
-Apple has more cash reserves than the United Kingdom.It  keeps cash reserves of over $200 billion
+Apple has more cash reserves than the United Kingdom. It  keeps cash reserves of over $200 billion
 
 ## Chapter 6: The Missing Link
+
+With Eyefluence, instead of just watching
+a user’s eye, and taking cues from winks, blinks, nods or taps, the technology
+understands user intent and then acts without gesture or voice cues.
+
+Eyefluence was developing a visual keyboard. In the near future, you can write an entire book by just looking at keys, and it would be far faster than typing.
+
+Eyefluence can spot dyslexia, autism and other serious health-related issues in minutes.
+
+Google announced on Oct. 30, 2016, that it would acquire the company for an undisclosed amount of cash and stock.
+

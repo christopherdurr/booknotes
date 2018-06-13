@@ -4,9 +4,7 @@
 
 ## Chapter One: Anxiety
 
-Emil M. Cioran, Romanian Philosopher, wrote: *"Anxiety is not provoked: it tries to find a justification for itself, and in order to do so seizes upon anything, the
-vilest pretexts, to which it clings once it has invented them. . . . [A]nxiety provokes itself, engenders itself, it is
-“infinite creation.”*
+Emil M. Cioran, Romanian Philosopher, wrote: *"Anxiety is not provoked: it tries to find a justification for itself, and in order to do so seizes upon anything, the vilest pretexts, to which it clings once it has invented them. . . . [A]nxiety provokes itself, engenders itself, it is “infinite creation.”*
 
 Meditation and therapy impact neurochemistry.
 
@@ -27,3 +25,11 @@ Anxiety helps us secure our identities as authentic individuals separate from th
 
 Kieerkegard writes: “Anxiety . . . is an expression of the perfection of human nature. It is the homesickness of earthly life for
 the higher.”
+
+If you trust that your task in life is to become an authentic human being, then you will know
+what you should truly fear—namely, becoming a vacant-eyed, empty suit of an individual.
+
+Kierkegaard said for those who don't experience anxiety “That is because he is spiritless.”
+
+
+

@@ -71,4 +71,108 @@ In "The Loss of Sadness", authors Allan Horwitz and Jerome Wakefield
 contend that with the medicalization of just about everything, we have arrived at treating
 ordinary sadness as if it were a depressive illness. 
 
+Kierkegaard attests that
+depression develops into despair—into a spiritual malady—only when we let ourselves be
+defined by our depression and, in our hopelessness, toss in the towel on our moral and
+spiritual aspirations. That surrender is despair, not depression.
+
+depression kept at bay can augment our ability to
+empathize with those feeling broken and without purpose
+
+Tim Farrington: “It is in that surrender, in the embrace of our own perceived futility that real freedom comes.”
+
+## Chapter 3: Death
+
+Thanatology is an emerging science of how to die and deal with death
+
+Schopenhauer: "The cheerfulness and vivacity of youth are partly due to the fact that when we are ascending the hill of life, death is
+not visible: it lies down at the bottom of the other side. But once we crossed the top of the hill, death comes in view
+—death, which, until then, was only known by hearsay. . . . A grave seriousness now takes the place of the early
+extravagance of spirit; and the change is noticeable even in the expression of a man’s face. . . . For towards the
+close of life, every day gives us the same kind of sensation as the criminal experiences at every step on his way to
+be tried"
+
+Schopenhauer believed the greatest achievement in life is overcoming the will to live. 
+
+Freud taught that belief in God was a projection of a childish wish for protection
+
+Tolstoy wanted people to understand that in *The Death of Ivan Ilych* that  modern life
+is spiritual death with its lack of authenticity and brotherly love.  Ivan expresses his
+chagrin and perplexity at the fact that someone like him—someone who had done
+everything “right,” everything he was supposed to do—could be doomed to this dreadful
+fate of annihilation.  Ivan expresses his
+chagrin and perplexity at the fact that someone like him—someone who had done
+everything “right,” everything he was supposed to do—could be doomed to this dreadful
+fate of annihilation.
+
+Kierkegaard believed that awareness of death, like anxiety, has lessons for us. 
+
+Death is usually compared to sleep. Kierkegaard writes: Kierkegaard writes: “Look at the one who is sleeping in death; he is not flushed
+like a child in sleep; he is not gathering new strength . . . the dream is not paying him a
+visit in friendliness the way it visits the old man in his sleep!”
+
+In “At a Graveside,” Kierkegaard describes moods as a form of internal weather
+sparked by something external. Dark and light, moods come and go.
+
+, people long to die in their sleep, that is, to die
+without experiencing death; if not in their sleep then a quick death, one that affords the
+least amount of time, the minimal awareness that while life moves on for everyone else, it
+is over for you.
+
+The Kierkegaardian understanding of death might be this: don’t be careless with the
+people you walk through life with. Don’t have arguments and leave them unsettled.
+
+Even Jesus wept over his impending death in Gethsemane. 
+
+ our capacity to absorb and tolerate the full weight of
+grief is part of becoming an authentic human being.
+
+## Chapter 5: Authenticity
+
+ the once-urgent issue of authenticity seems
+to have been lost to selfies, social media branding, and managing your profile on LinkedIn
+and Facebook, as though everyone has become their own unabashed publicist. It is not
+who you are but who you seem to be
+
+Chuck Klosterman: “I honestly believe that people of my generation despise
+authenticity, mostly because they’re all so envious of it.”
+
+Everyone is enjoined to have some dream about their life, and you are authentic to the extent that you doggedly
+pursue that vision as though it were your essence.
+
+Is the litmus test of authenticity the gap between who we feel we are and who we present ourselves to be? “Above
+all,” Camus wrote in his Notebooks, “in order to be, never try to seem.”
+
+It is not possible to generate an unambiguous criterion for deciding whether or not we are leading authentic
+lives
+
+ Theodore Adorno says in *Jargon of Authenticity* all the sophisticated chatter about authenticity, about becoming
+yourself, is grounded in the fallacious assumption that each of us possesses an individual
+soul-like essence discernible by introspection. 
+
+Nietzche believes originality is: “to see something that has no name as yet and hence cannot be
+mentioned although it stares us all in the face"
+
+This bracing awareness of death, coupled with the angst that it brings, grabs us by the wrist and pulls us out of the
+crowd
+
+Philosopher Mike Martin writes: "Unconfronted, death is dreadful. It generates vague fears and anxieties that drive us away from authenticity and
+toward immersion in conventionality and everyday pleasures. . . . In fully acknowledging death we are pressured to
+unify our lives"
+
+ the idea of authenticity is intrinsically bound up with the notion of
+making something your own. Kierkegaard believed that we make our views our own not
+by hitting “like” on Facebook but by passionately relating ourselves to those ideas and
+expressing them in the medium of action
+
+However we define it, authenticity does not seem to be something we can work at, save in the sense that we can
+make strides to avoid inauthenticity.
+
+The either-or, however, is this: Is that self a self we
+create or, à la Kierkegaard, a plan of a self that is there from the start, one that you can fail
+to realize even as you conquer territories, move mountains, etc.
+
+
+## Chapter 6: Faith
+
 
